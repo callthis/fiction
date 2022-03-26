@@ -32,12 +32,23 @@ Furthermore, the Russians will never agree to lose or give up Ukraine, the peopl
 
 Russia will never allow any rebuilding or strengthening of Ukraine's military that could otherwise lead to "asymmetric warfare" pursued by Ukrainians against "Russian peoples and territories."
 
-In all likelihood, once the the US, UK and EU thoroughly aggravate the Russians, the Russian military will simply bomb the snow out of Ancorage, Alaska and the wind out of Edminton, Alberta using hypersonic missiles. Merely these two cities getting bombed would cause all of North America to fall to it knees and become completely cripled. 
+`
+In all likelihood, once the the US, UK and EU thoroughly aggravate the Russians, the Russian military will simply bomb the snow out of Anchorage, Alaska and the wind out of Edmonton, Alberta using hypersonic missiles. Merely these two cities getting bombed would cause all of North America to fall to it knees and become completely cripled. 
+`
 
-Even if Putin dies, gets assasinated, or somehow gives up, the rest of Russian military is not going to back down anymore, because they have been made to appear as the villains even though they were only following the same playbook during this decade as the British, Germans, and the Americans did in the previous centuries﹘in laying siege for imperial conquests.
+Do the Russians need to attack any other cities? Any other ones? Washington D.C.? Toronto? London? Vienna? Any other cities? Nope. Only Anchorage and Edmonton. The Russians could also be subtle, and only use cyberwarfare to take down Anchorage airport as well as the pumping stations of crude oil and natural gas pipelines in Edmonton. Onces that happens, North America would slowly grind to a halt.
+
+<p align="center">
+  <img width="70%" src="https://www.capp.ca/wp-content/uploads/2021/04/2020-CAPP-Pipeline-and-Refinery-Map-LARGE-fo-linking-only.jpg"></img>
+</p>
+<p align="center">
+<b>The world will be left with no tits nor tats because of tit-for-tat actions and reactions</b>
+</p>
+
+Even if Putin dies, gets assasinated, or somehow gives up, the rest of Russian military is not going to back down anymore, because they have been made to appear as the villains even though they were only following the same playbook during this decade as the British, Germans, and the Americans did in the previous centuries ﹘ in laying siege for imperial conquests.
 
 Imperialists don't care for public opinion about who is the good guy or the bad guy, they only care about land grab and about who is the dead guy versus the alive guy. 
 
 International investors and investment groups eventually fall in line with one or the other imperial regime of the alive guys. 
 
-And this is how all of us will continue to remain stuck in the rut of a medieval worldview, stoked by imperialism and mercantilism!
+And that is how all of us will continue to remain stuck in the rut of a medieval worldview, stoked by imperialism and mercantilism!
