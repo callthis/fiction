@@ -30,7 +30,7 @@ And perhaps there will be the usual air support from the US the same way wars in
 
 Is it just a little bit more precarious? No. It is almost close to impossible for US led troops to achieve air superiority and full electronic jamming capabilities because of Russian satellite and aerial counter-attack weapons with heavily armed and extremely eager, if not well trained, pilots and ground support units. The size of the Russian army is already much larger than what the US had managed to cobble together during the Afghanistan and Iraq wars of the past two decades. 
 
-The US and its allies are far too late to figure out how to ingress into the current war zones in Ukraine, and have yet to even figure out where to stage their troops. So they might now want to start an offensive from, let's say, um… in Germany? 
+The US and its allies are far too late to figure out how to ingress into the current war zones in Ukraine, and have yet to even figure out where to stage their troops. So they might want to now start an offensive from, let's say, um… from Germany? 
 
 Oh hell no! Germany is not at all interested in having the same-old-same-old escapades with German troops advancing into Poland and Ukraine. 
 
