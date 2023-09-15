@@ -6,7 +6,7 @@ Consider a generic cyclone that develops in the middle of the Indian Ocean, and 
 
 The silver lining?
 
-The wiped out British Indian Territories could be rebuilt into a global hub for commercial airlines and freight carriers, to improve connectivity between Dubai, and Sydney, for example. 
+The wiped out British Indian Territories could be rebuilt into a global hub for commercial airlines and freight carriers, to improve connectivity between, Dubai and Sydney, for example. 
 
 <br>
 <p align="center">
@@ -14,3 +14,7 @@ The wiped out British Indian Territories could be rebuilt into a global hub for 
     <br>
     <b>Frozen methane is a fragile, subsurface iceberg. Climate change isn't going to handle it with care."</b> 
 </p>
+
+---
+
+Image source: https://playgroundai.com/post/cljumorkp09ous601vos2wlsl 
