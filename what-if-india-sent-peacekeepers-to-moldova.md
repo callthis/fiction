@@ -2,7 +2,7 @@
 
 ## What if India sent peacekeeping troops to Eastern Europe?
 
-What if, and I'm saying, what if… Indian armed forces were to establish an international peacekeeping mission in Moldova and support other East European countries as and when required. 
+What if, and I'm saying, what if… Indian armed forces were to establish an international peacekeeping mission in, for example, Moldova, to support other East European countries as and when required. 
 
 India is not Russia. India is not China. India is not Saudi Arabia. India is not the US, the UK or any European country. India is a democratic republic that is neutral to the conflicts in East Europe, and coincidentally, has hundreds of thousands of soldiers who can act as a buffer between EU nations and Russian protectorates. You know, just coincidentally. 
 
