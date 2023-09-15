@@ -6,7 +6,7 @@ Consider a generic cyclone that develops in the middle of the Indian Ocean, whic
 
 The silver lining?
 
-The wiped out British encroachments of territories in the Indian Ocean could be rebuilt into a global hub for commercial airlines and freight carriers, to improve connectivity between, Dubai and Sydney, for example. 
+The wiped out British and American encroachments of territories in the Indian Ocean could be rebuilt into a global hub for commercial airlines and freight carriers, to improve connectivity between, Dubai and Sydney, for example. 
 
 <br>
 <p align="center">
