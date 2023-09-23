@@ -1,5 +1,5 @@
 # fiction
-An anthology of artistic expressions that might as well be a product of mere imagination. So lets call this fiction.
+An anthology of artistic expressions that might as well be a product of mere imagination. So let's call this fiction.
 
 ## [2020-09-09 | Chain Reaction](https://github.com/callthis/fiction/blob/master/chain-reaction.md)
 
@@ -12,3 +12,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ## [2022-03-26 | Getting stuck in feudal wars](https://github.com/callthis/fiction/blob/master/russia-nato-feudal-wars.md)
 
 ## [2022-09-15 | Ablution by Ablation](https://github.com/callthis/fiction/blob/master/ablution-by-ablation.md)
+
+## [2022-09-23 | Professional Malpractices of State-Sponsored Entities](https://github.com/callthis/fiction/blob/master/professional-malpractices-of-state-sponsored-entities.md)
