@@ -28,7 +28,7 @@ The most important time for America's people to introspect and reflect upon, in 
 
 ---
 
-#### Let's get meta with this article 
+### Now, let's get meta with this article 
 
 The following type of results can be obtained, if you feed the last three paragraphs of the above text as a document for content and sentiment analysis, into a commercial AI software like: 
 
