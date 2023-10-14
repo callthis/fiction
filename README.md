@@ -14,3 +14,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ## [2023-09-15 | Ablution by Ablation](https://github.com/callthis/fiction/blob/master/ablution-by-ablation.md)
 
 ## [2023-09-23 | Professional Malpractices of State-Sponsored Entities](https://github.com/callthis/fiction/blob/master/professional-malpractices-of-state-sponsored-entities.md)
+
+## [2023-10-14 | America-Taiwan Relations, Question Mark](https://github.com/callthis/fiction/blob/master/america-taiwan-relations-question-mark.md)
