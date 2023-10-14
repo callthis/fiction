@@ -6,7 +6,7 @@ More factually and specifically, the individuals from the US government who draf
 
 The above fact is evidenced in the way the wording, ***"...relations between the people <ins>of</ins> the United States and the people <ins>on</ins> Taiwan..."*** is used in the *Taiwan Relations Act (1979).* 
 
-Could you imagine that type of a language being used by American lawmakers in referring to the Swedish people as people on Sweden, Singaporeans as people on Southern tip of Malaysia, Australians as non-Kiwis on Northern border of Antarctica, or Brazilians as Latinos on Amazonian River basin? 
+Could you imagine that type of a language being used by American lawmakers in referring to the Swedish people as people on Sweden, Singaporeans as people on Southern tip of Malaysia, Australians as non-Kiwi and non-Argentine neighbors on Antarctica's borders, or Brazilians as Latinos on Amazonian River basin? 
 
 Or, would American legislators and congressional ministers possibly ever refer to the Saudis from Saudi Arabia in a legal document as, people on the Arabian Peninsula; along with the Omani, Yemeni, Emiraati, Kuwaiti, Qatari, and Bahranian peoples as yet another group of humans on the Arabian Subcontinent? 
 
