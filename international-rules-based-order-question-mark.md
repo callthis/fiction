@@ -43,3 +43,5 @@ Therefore, the utterly hapless approach prescribed by emotionally stunted people
 Mechanistic people who believe that the universe we live in, is nothing but a soulless computer simulation in the form of a finite-state-machine, possibly cannot appreciate the essence of our humanity that makes us *humane beings,* due to their obliviousness. Those types of people, must not be placed in-charge of anything that produces direct or indirect consequences upon living beings. 
 
 In conclusion, countries like India need not budge even a single inch, in the face of duress or any other types of calmly stated threats and corrupting motions involving bribes. Most importantly, in regards to ongoing international negotiations, suitable forms of justified defensive actions are necessarily to be put into effect, against countries that incubate, or support, groups which conduct terror, sabotage, or separatism based activities across borders. Such considered actions can be deployed in reciprocity to condition-action rules, that those offending and offensive countries happen to be so truly, fond of. 
+
+     
