@@ -10,9 +10,9 @@ More generally though, the concept of "rules" for many individuals who belong to
 
 Examples of first order predicate logic include: 
 
-a) If it rains today in Madrid, Spain, then I will buy a lottery ticket from Macao, China. 
+  a) If it rains today in Madrid, Spain, then I will buy a lottery ticket from Macao, China. 
 
-b) If government officials from neutral countries like India, do not proactively change their stance to become distinctly friendly to NATO in their public outlook and statements, then they will be declared as misfits, who will also be turned away from, shunned during, or even derided in meetings with European and North American alliances, via overt as well as covert actions.  
+  b) If government officials from neutral countries like India, do not proactively change their stance to become distinctly friendly to NATO in their public outlook and statements, then they will be declared as misfits who will also be turned away from, shunned during, or even derided in meetings with European and North American alliances, via overt as well as covert actions.  
 
 <br>
 
