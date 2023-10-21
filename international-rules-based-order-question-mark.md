@@ -26,7 +26,11 @@ In contrast to people who find emotional and patriotic sentiments as a hindrance
 
 Production rules are also known as "condition-action" rules, whereby, sets of statements that describe known conditions or patterns, directly imply or lead to, predetermined actions for generating predicted or estimated outcomes. The following definition from online Oxford Reference, explains the concept of production rules — 
 
-> A programming language [or a paradigm,] in which the programs [or routines,] consist of condition ⇒ action rules; these rules are known as productions or production rules. The programs [or routines,] are processed by an *interpreter* which repeats the following operations: all rules whose conditions are satisfied are found (rule matching), one of them is selected (conflict resolution), and its action is called (rule firing). Such systems are often known as rule-based systems in artificial intelligence and form the basis of many expert systems.
+> A programming language [or a paradigm,] in which the programs [or routines,] consist of condition ⇒ action rules; these rules are known as productions or production rules. The programs [or routines,] are processed by an *interpreter* which repeats the following operations: 
+> - all rules whose conditions are satisfied are found (rule matching), 
+> - one of them is selected (conflict resolution), and its action is called (rule firing). 
+>
+>Such systems are often known as rule-based systems in artificial intelligence and form the basis of many expert systems.
 >
 >Subject: Science and Technology — Mathematics and Computer Science; "Production rule system", https://www.oxfordreference.com/display/10.1093/oi/authority.20110803100348969 
 
