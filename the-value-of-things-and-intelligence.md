@@ -22,6 +22,6 @@ Well, did you recognize that the previous moment in time died, and the current v
 
 The past has ceased to exist but its evidence is available in the present. The future has yet to exist but its potential exists in the present. How we honor the past, and recognize a path towards a possible future, gives meaning to the present. Not knowing how to, or not being able to read the present, leads to a sense of loss — of meaning. 
 
-[^1]: Deja vu, is a feeling that comes from the realization of, "I have seen this before." *Deja mu,* is a feeling that comes from realizing, "I've heard this bullshit before." Mooooo :cow: :laugh: 
+[^1]: Deja vu, is a feeling that comes from the realization of, "I have seen this before." *Deja mu,* is a feeling that comes from realizing, "I've heard this bullshit before." Mooooo :cow: :laughing: 
     
     Here, certain rude sounding words are placed adjacent to more philosophically profound concepts regarding "truth" and sacred aspects of human experience, because the things that seem to appear important and significant, are always subjectively found in the context of remaining things, which appear unimportant and not so meaningful. It is up to you to decide what is or isn't valuable to you, and whether you will be able to live with consequences of your decisions.   
