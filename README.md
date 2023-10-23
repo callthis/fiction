@@ -18,3 +18,7 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ## [2023-10-14 | America-Taiwan Relations, Question Mark](https://github.com/callthis/fiction/blob/master/america-taiwan-relations-question-mark.md)
 
 ## [2023-10-21 | International Rules-based Order, Question Mark](https://github.com/callthis/fiction/blob/master/international-rules-based-order-question-mark.md)
+
+## [2023-10-23 | The Value of Things and Intelligence](https://github.com/callthis/fiction/blob/master/the-value-of-things-and-intelligence.md)
+
+## [2023-10-23 | Online Communications Within a Publicly Accessible Channel ](https://github.com/callthis/fiction/blob/master/online-comms.md)
