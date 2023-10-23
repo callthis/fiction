@@ -28,7 +28,7 @@ Production rules are also known as "condition-action" rules, whereby, sets of st
 
 > A programming language [or a paradigm,] in which the programs [or routines,] consist of condition ⇒ action rules; these rules are known as productions or production rules. The programs [or routines,] are processed by an *interpreter* which repeats the following operations: 
 > - all rules whose conditions are satisfied are found (rule matching), 
-> - one of them is selected (conflict resolution), and its action is called (rule firing). 
+> - one of them is selected (conflict resolution), and its action is [executed] (rule firing). 
 >
 >Such systems are often known as rule-based systems in artificial intelligence and form the basis of many expert systems.
 >
