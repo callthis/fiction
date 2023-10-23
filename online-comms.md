@@ -20,7 +20,7 @@ The fact that, mere tweets or status updates on a social media platform can pote
 
 So, whenever an entity wants public attention diverted away from a particular online post on a social media platform, the most economic strategy used by them has been to wait and do nothing, so as to allow the deluge of other posts to bury that particular content, somewhere far away from the eyesight and minds of prospective onlookers. 
 
-For sure, there is no practical way to keep an online post fresh, and to maintain its relevance to consumers' interests while making it constantly resurface within the feed of their social media platform, without spending vast amounts of cash and human resources for repeatedly elevating the visibility, of a message with a "call to action."  
+For sure, there is no practical way to keep an online post fresh, and to maintain its relevance to consumers' interests while making it constantly resurface within the feed of their social media platform, without spending vast amounts of cash and human resources for repeatedly elevating the visibility, of a message with its "call to action."  
 
 The reality is that many innocent consumers don't even consider the truthfulness and authenticity of a message that shows up in their online feed (or wall, or reel), simply because they are only concerned with how it makes them feel, during the momentary instance of reading or viewing the available content. However, teams of security analysts employed within intelligence bureaus of government agencies and departments, aren't merely looking for what a message directly sent to them, 'feels like.' This is because their ultimate job is to extract "actionable intelligence" from a communication. 
 
