@@ -18,7 +18,7 @@ For all of the above reasons, a large number of copies of the data posted on eac
 
 The fact that, mere tweets or status updates on a social media platform can potentially become an indelible record of any entity's online expressions, raises quite a few challenges for government as well as non-government based organizations, specifically when those online posts have genuine legal ramifications and consequences, regardless of them being "offensive" or "inoffensive" to the cultural worldviews of various onlookers. 
 
-So, whenever an entity wants public attention diverted away from a particular online post on a social media platform, the most economic strategy used by them has been to wait and do nothing, so as to allow the deluge of other posts to bury that particular content, somewhere for away from the eyesight and minds of prospective onlookers. 
+So, whenever an entity wants public attention diverted away from a particular online post on a social media platform, the most economic strategy used by them has been to wait and do nothing, so as to allow the deluge of other posts to bury that particular content, somewhere far away from the eyesight and minds of prospective onlookers. 
 
 For sure, there is no practical way to keep an online post fresh, and to maintain its relevance to consumers' interests while making it constantly resurface within the feed of their social media platform, without spending vast amounts of cash and human resources for repeatedly elevating the visibility, of a message with a "call to action."  
 
