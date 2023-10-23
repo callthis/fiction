@@ -4,7 +4,7 @@ The etiquette and decorum for communicating with individuals or business entitie
 
 From my perspective, here is the most significant difference that social media channels such as Twitter (now known as X) allow for, when it comes to human-human interactions. 
 
-1. Online, publicly accessible social media channels produce and facilitate, practically the most communistic, democratic, socialistic, and capitalistic forms of human activities, all at the very same time. 
+1. Online, publicly accessible social media channels produce and facilitate, practically the most communistic, democratic, capitalistic, and socialistic forms of human activities, all at the very same time. 
 
     1. It is communism-like because all persons have roughly the same basic tools to start with, when online users want to read or post a message on a public, social media channel. However, it is much more like the subversive and Leninist version of communism, in how some central authority figures posing as a "vanguard party", have much stronger set of algorithmic tools to control the flow of information, within the overall social media platform, just like the Bolsheviks did during the early 1920s. 
 
