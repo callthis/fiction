@@ -18,7 +18,23 @@ Character assassination; intimidation; harassment; humiliation; cruelty; torment
 
 A possible way to deter professional malpractices committed by public service units, especially to punish their wretched activities involving framing of innocent people for illegitimate detention and to deter harms done to vulnerable people via Eugenics, could be to: 
 
-- Enforce a bond payable by the court systems of countries like Canada, to be held in an escrow account of an underwriter (such as, an internationally accredited financial institution in UAE, Qatar, or Singapore), as soon as any law enforcement agencies start to interact with a person or with the person's private data, for the purposes of any kind of investigations or monitoring activities. Similar to a bail bond payable by an accused as a contingency, if the procedures and processes administered by the court system turn out to be rigged with falsehoods, prejudicial, wrongful, or in any form that is conducted in a manner to violate the serviced entity's rights, then the liable court or public service group can be made to immediately remit compensations via the bonds held as a collateral in the escrow account, in the event of such violations, disservice, or a miscarriage of justice. 
+- Enforce a bond payable by the court systems of countries like Canada, to be held in an escrow account of an underwriter (such as, an internationally accredited financial institution in UAE, Qatar, or Singapore), as soon as any law enforcement agencies start to interact with a person or with the person's private data, for the purposes of any kind of investigations or monitoring activities. Similar to a bail bond payable by an accused as a contingency, if the procedures and processes administered by the court system turn out to be: 
+
+    - sadistic,
+
+    - malicious,
+
+    - rigged with falsehoods, 
+
+    - prejudicial, 
+
+    - injurious, 
+
+    - wrongful, 
+
+    - or in any form that is contrary, unfair or in violation of the serviced entity's rights, 
+
+    then, the liable court or public service group can be compelled to immediately remit compensations via the bonds held as a collateral in the escrow account, in the event of such violations, disservice, or a miscarriage of justice. 
 
 - The value of the bond, along with punitive measures into it for deterring professional malpractices carried out by a municipality's or a country's public service groups, can be set by the international bond market for municipal and treasury bonds. 
 
