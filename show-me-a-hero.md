@@ -36,7 +36,7 @@ A possible way to deter professional malpractices committed by public service un
 
     then, the liable court or public service group can be compelled to immediately remit compensations via the bonds held as a collateral in the escrow account, in the event of such violations, disservice, or a miscarriage of justice. 
 
-- The value of the bond, along with punitive measures into it for deterring professional malpractices carried out by a municipality's or a country's public service groups, can be set by the international bond market for municipal and treasury bonds. 
+- The value of the bond, along with punitive measures incorporated into it for deterring professional malpractices carried out by a municipality's or a country's public service groups, can be set by the international bond market for municipal and treasury bonds. 
 
 - Such a guarantee for assuring and insuring the correctness of procedures used by court systems and public service agencies, against professional malpractices, can be contractually enforced by the insurance industry, without resorting to concepts like, "differed payments for compensations", and without forcing the wrongly prosecuted or serviced persons to "appeal to a 'higher court' for appropriate restitution." Cases involving professional malpractices and misconduct, of judiciary and other public services groups in countries like Canada, especially against members of vulnerable or international communities, can be adjudicated and redressed by a legislated committee that has staff from embassies of concerned countries, as independent observers and surveyors of the committee's actions. 
 
