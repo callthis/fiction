@@ -22,3 +22,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ## [2023-10-23 | The Value of Things and Intelligence](https://github.com/callthis/fiction/blob/master/the-value-of-things-and-intelligence.md)
 
 ## [2023-10-23 | Online Communications Within a Publicly Accessible Channel ](https://github.com/callthis/fiction/blob/master/online-comms.md)
+
+## [2023-11-09 | Show Me a Hero](https://github.com/callthis/fiction/blob/master/show-me-a-hero.md)
