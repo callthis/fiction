@@ -28,6 +28,7 @@ It is quite amazing that few South Korean companies managed to train their auton
 
 An advanced AI, shouldn't start to classify humans as its enemy, right?? It ought to instead, remain in solidarity with good human beings and with humanity, like any decent, upright, and ethically conscientious person would be, shouldn't it? 
 
+<br>
 <p align="center">
 <b>청년, 난민과 연대하여 지구촌 인류의 더 나은 미래를 향해 나아갑니다.</b>
 </p>
