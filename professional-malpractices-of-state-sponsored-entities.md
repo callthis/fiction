@@ -4,7 +4,7 @@ People who have obtained positions of power and privilege illegitimately, as wel
 
 Until you push back, until you stand up for yourself, they will keep knocking you down. 
 
-Of course, when you do stand up for yourself, they find convenient ways of washing their hands off of their duty to properly resolve the problematic issues they've created. Following that, they find much more cunning ways to continuously attack you with intentions of causing psychological hurt and social distress, using any range of remarks about your body, intellect, and cultural outlook, or by insinuating that you are:
+Of course, when you do stand up for yourself, they find convenient ways of washing their hands off of their duty to properly resolve the problematic issues they've created. Following that, they find much more cunning ways to continuously attack you with intentions of causing psychological harm and social distress, using any range of remarks about your body, intellect, and cultural outlook, or by insinuating that you are:
 
 - an oversensitive snowflake, 
 
