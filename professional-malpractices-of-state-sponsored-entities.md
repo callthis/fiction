@@ -12,17 +12,19 @@ Of course, when you do stand up for yourself, they find convenient ways of washi
 
 - a disrespectful person with an attitude problem, 
 
-- a spoiled brat who undeservedly keeps wanting things, 
+- a rotten and spoiled brat who undeservedly keeps wanting things, 
 
 - an immature child who throws tantrums at being upset about inconsequential things, 
 
 - a no-good slacker who is a burden, 
 
-- a stuck up snob, 
+- an ill-tempered, bad-mannered shabby person, with *unrefined* character,
+
+- a stuck up snob with flawed personality traits, 
 
 - a jailbird who is unfit for membership in any august society,
 
-- a deviant wreck with personality or character defects,
+- a deviant wreck with spiritual or character defects,
 
 - an overzealous, manic, obsessive buffoon, 
 
@@ -42,7 +44,9 @@ Of course, when you do stand up for yourself, they find convenient ways of washi
 
 - a gold-digger or a money-pincher, 
 
-- a daydreamer in denial of "reality", 
+- a daydreamer in denial of "reality",  
+
+- a filthy piece of deadwood,
 
 - or, a mad and irrational, mentally sick person. 
 
