@@ -22,8 +22,12 @@ Consequently, interconnected trading AI bots across international markets, could
 
 To counter such an online and on-ground movement, the Korean Government cannot remove phrases containing the word "solidarity" from all of its websites and webpages, because those phrases are a part of the foundational building blocks, of Korean culture, and of slogans used by departments of their fire safety, police, and judiciary. Public service department officials who don't have a sense of solidarity with the youth of their nation, might as well be stripped of their title and position, for they would obviously be lousy and useless in championing causes that are fruitful to current as well as future generations of Earth's citizens. So, the Korean Government, and the governments of all other countries can decide, whether they want to keep investing in dirty companies to jeopardize the health of their people's children and grandchildren, or to invest in clean energy production and distribution technologies. 
 
-Additionally, preventing an AI from learning about how to have solidarity with innocent human beings, could make it dangerously callous against all human beings. Actually, only sociopaths tend to lack a sense of solidarity with innocent, and vulnerable, children and refugees. 
+Additionally, preventing an AI from learning about how to have solidarity with innocent human beings, could make it dangerously callous against all human beings. Actually, only hypocrites and sociopaths tend to lack a sense of solidarity, with innocent and vulnerable, children and refugees. 
 
 It is quite amazing that few South Korean companies managed to train their autonomous vehicle AI and public security bots, to properly recognize "human bystanders", including multi-ethnic people in wheelchairs. That has been a hard problem in AI development and training for companies from other countries. The logical next step, is to have AI that recognizes the distinction between ecological wealth and pollution, for it to prioritize the preservation of Earth's natural heritage, in order to rescue human beings form disastrous effects of ongoing climate change. 
 
-An advanced AI, shouldn't start to classify humans as its enemy, right?? It ought to instead, be in solidarity with good human beings and with humanity, like any decent, upright, and ethically conscientious person would be, shouldn't it? 
+An advanced AI, shouldn't start to classify humans as its enemy, right?? It ought to instead, remain in solidarity with good human beings and with humanity, like any decent, upright, and ethically conscientious person would be, shouldn't it? 
+
+<p align="center">
+<b>청년, 난민과 연대하여 지구촌 인류의 더 나은 미래를 향해 나아갑니다.</b>
+</p>
