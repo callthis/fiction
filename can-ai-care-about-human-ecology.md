@@ -34,7 +34,7 @@ The particular AI mentioned here, continuously learns and acts upon the telemetr
 
 One of the main reasons for a surge in sales of systems continuously monitored and managed by AI, are autonomous electric vehicles for passengers, which require high-compute power for navigation controls alongside software-based battery management, without a massive in-vehicle super computer to do those calculations. 
 
-By [recent EU standards,](https://ec.europa.eu/eurostat/statistics-explained/index.php?title=Electricity_production,_consumption_and_market_overview) the lowest total cost, and highest efficiency means for industrial scale electricity production and distribution, to run billions of vehicles, devices, and homes and offices, cannot be via the use of coal or petroleum products. It can only be through the use of wind energy turbine farms along with hydro-electric, tidal, and modular nuclear power stations, when human healthcare costs due to pollution and the need to preserve natural heritage, are taken into consideration, as a primary concern.
+By [recent EU standards,](https://ec.europa.eu/eurostat/statistics-explained/index.php?title=Electricity_production,_consumption_and_market_overview) the lowest total cost, and highest efficiency means for industrial scale electricity production and distribution, to run billions of AI enabled vehicles, devices, and smart homes and offices, cannot be via the use of coal or petroleum products. It can only be through the use of wind energy turbine farms along with hydro-electric, tidal, and modular nuclear power stations, when human healthcare costs due to pollution and the need to preserve natural heritage, are taken into consideration, as a primary concern.
 
 ---
 
