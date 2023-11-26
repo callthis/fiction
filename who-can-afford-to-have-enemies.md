@@ -8,7 +8,7 @@ You may also ask yourself, "Is it even remotely sane or possibly realistic, for 
 
 This is why, one might as well be cognizant that,
 
->Do unto others, as you would wish to be done, to your children and grandchildren. When you get to see the horror and agony in their eyes due to your deeds, you will finally accept and acknowledge what you should and shouldn't have done, by your willful and forceful choices. 
+>Do unto others, as you'd wish to be done to, your children and grandchildren. When you get to see the horror and agony in their eyes due to your deeds, you will finally accept and acknowledge what you should and shouldn't have done, by your willful and forceful choices. 
 
 But, if your children and grandchildren were killed before they could be born, due to systematic reproductive and sexual harms done to you, by those who intended to destroy your kind, merely because of the color of your skin, or your place of origin, or because of your religious beliefs, then you won't have to see anything in the eyes of your children or grandchildren. More importantly, they will never have to see anything in your eyes. 
 
