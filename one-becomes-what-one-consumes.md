@@ -12,3 +12,10 @@ A polluted ecology driven into oblivion, by ceaseless wars and frenzied consumer
 
 ---
 
+<div align="center">
+
+In solidarity with refugees, for a permanent ceasefire in the Caspian, Mediterranean, and Black Sea regions. 
+
+난민들과 연대하여 카스피해, 지중해, 흑해 지역의 영구적인 휴전을 위해.
+
+</div>
