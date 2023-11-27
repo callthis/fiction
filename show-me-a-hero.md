@@ -46,7 +46,7 @@ A possible way to deter professional malpractices committed by public service un
 
 ### Show Me a Redeemer
 
-So what happens when a municipality or a country refuses to pay its debts by evading or absconding repayment of reparations that it owes to victims and survivors of state-sponsored violations? What happens when those violators simply refuse to even acknowledge their wrongdoings, and continue to cause surreptitious harms to profiled and targeted people? 
+So what happens when a municipality or a country refuses to pay its debts by evading or absconding repayment of reparations that it owes to victims and survivors of its state-sponsored violations? What happens when those violators simply refuse to even acknowledge their wrongdoings, and continue to cause surreptitious harms to profiled and targeted people? 
 
 Well, that is precisely what has been continuously happening among various municipal corporations, multi-national companies, and sovereign nation-states throughout the world. The heinous crimes of Canadian agents and agencies against persons like myself, isn't something new or surprising compared to historical, and ongoing, state-sponsored human rights abuses and politically motivated pernicious crimes involving abuse of medical sciences. 
 
