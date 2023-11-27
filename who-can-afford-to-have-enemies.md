@@ -2,7 +2,7 @@ Who can afford to have enemies?
 
 Do you suppose there will ever come a day, when America will have no enemies? Most probably if you speak to a randomly chosen Republican Senator about that day, they will say something like, "Yes, the day when America conquers and rules the world, as its absolute and sole supreme power, by crushing and defeating all of its enemies, that day, America shall have no enemies." 
 
-America already has no friends and only has hostages with Stockholm Syndrome, in international geopolitics. So, by now you might have realized that, those warmongering Senators have always been aiming towards fueling a cataclysmic, never-ending world war, in pursuit of their fantasy to rule the world as its absolute, supreme leaders. 
+America already has no friends and only has hostages with Stockholm Syndrome, within international geopolitics. So, by now you might have realized that, those warmongering Senators have always been aiming towards fueling a cataclysmic, never-ending world war, in pursuit of their fantasy to rule the world as its absolute, supreme leaders. 
 
 You may also ask yourself, "Is it even remotely sane or possibly realistic, for America or Britain, or any other nation or a conglomerate for that matter, to ever aim towards global supreme dominance and primacy, over all of human kind for all of eternity?"
 
