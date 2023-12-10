@@ -62,7 +62,7 @@ Indeed, Qatar has had the opportunity for becoming the preferred destination for
 
 Being on the right or wrong side of history is only discernible in hindsight, decades after an incident has occurred. Therefore, which side of history would the people of Qatar like to be on? 
 
->One does not need to kill or devour a buddha, if one happens to meet a buddha on the street. Whether one meets an [Angulimaala](https://en.wikipedia.org/wiki/A%E1%B9%85gulim%C4%81la#Life_as_a_brigand), or the Buddha, one only needs to say Namaste to each, and then continue on their own path. Both, Angulimaala and the Buddha, will only do what they were meant to do, when they crossed paths with you. 
+>One does not need to kill or devour a buddha, if one happens to meet a buddha on the street. Whether one meets an [Angulimaala](https://en.wikipedia.org/wiki/A%E1%B9%85gulim%C4%81la#Life_as_a_brigand), or the Buddha, one only needs to say Namaste to each, and then continue on their own path. Both, Angulimaala and the Buddha, would only do what they were meant to do, if they were to ever cross paths with you. 
 
 ---
 
