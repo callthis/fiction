@@ -12,7 +12,7 @@ The wiped out British and American encroachments of territories in the Indian Oc
 <p align="center">
     <img width="65%" src="./src/cyclone-picking_up-icey_fire.jpeg"></img>
     <br>
-    <b>Frozen methane is a fragile, subsurface iceberg. Climate change isn't going to handle it with care."</b> 
+    <b>Frozen methane is a fragile, subsurface iceberg. Climate change isn't going to "handle it with care."</b> 
 </p>
 
 ---
