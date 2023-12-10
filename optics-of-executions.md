@@ -1,6 +1,6 @@
 ## The Optics of Capital Punishment via Beheading
 
-This article is to be viewed in the context of a group of veterans from Indian armed forces being held in Qatar, who have been sentenced to death by *a court of First Instance* of Qatar's judiciary, presumably on charges of espionage. 
+This article is to be viewed in the context of a group of veterans from Indian armed forces being held in Qatar, who have been sentenced to death by *The Court of First Instance* of Qatar's judiciary, presumably on charges of espionage. 
 
 Now, let's consider the optics of, beheading people. 
 
