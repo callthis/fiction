@@ -38,3 +38,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2023-11-25 | Who Can Afford to Have Enemies](https://github.com/callthis/fiction/blob/master/who-can-afford-to-have-enemies.md)
 
 ### [2023-11-26 | One Becomes What One Consumes](https://github.com/callthis/fiction/blob/master/one-becomes-what-one-consumes.md)
+
+### [2023-12-10 | The Optics of Capital Punishment via Beheading](https://github.com/callthis/fiction/blob/master/optics-of-executions.md)
