@@ -1,4 +1,4 @@
-# The World is Multi-Modal, Not Multi-Polar
+# The World is Multimodal, Not Multipolar
 
 This universe doesn't merely present simplistic dichotomies like good versus bad, or good versus evil. We happen to live within the geopolitics of a multi-modal world, not a multi-polar one, and certainly not a uni-polar realm, at least, not anymore. 
 
