@@ -40,3 +40,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2023-11-26 | One Becomes What One Consumes](https://github.com/callthis/fiction/blob/master/one-becomes-what-one-consumes.md)
 
 ### [2023-12-10 | The Optics of Capital Punishment via Beheading](https://github.com/callthis/fiction/blob/master/optics-of-executions.md)
+
+### [2023-12-12 | The World is Multimodal, not Multipolar](https://github.com/callthis/fiction/blob/master/the-world-is-multimodal-not-multipolar.md)
