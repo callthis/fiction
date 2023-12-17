@@ -44,3 +44,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2023-12-12 | The World is Multimodal, not Multipolar](https://github.com/callthis/fiction/blob/master/geopolitics-is-multimodal-not-multipolar.md)
 
 ### [2023-12-16 | Centrality of a Situation](https://github.com/callthis/fiction/blob/master/centrality-of-a-situation.md)
+
+### [2023-12-18 | How To Dehumanize and Assassinate, An Individual's Character](https://github.com/callthis/fiction/blob/master/how-to-dehumanize-and-assassinate-an-individuals-character.md)
