@@ -8,7 +8,7 @@ Of course, if those so-called experts were to be asked whether they have studied
 
 When the so-called experts are further questioned about their expertise, by having them showcase the model of personality constructs they used, in evaluating or profiling the targeted person, they will usually be at a loss for words and explanations, because they can't tell you what the phrase, "personality constructs", is supposed to mean. 
 
-Sometimes, an agency hires a "profiler", who will claim that they happened to observe the target individual's behaviors and attitude, to create a profile of that individual's characteristic "temperament", based on either a: 
+Sometimes, an agency hires a *"profiler",* who will claim that they happened to observe the target individual's behaviors and attitude, to create a profile of that individual's characteristic "temperament", based on either a: 
  
  - [5-traits model](https://en.wikipedia.org/wiki/Big_Five_personality_traits), or, 
  
