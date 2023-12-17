@@ -28,6 +28,6 @@ The following link provides tables that compare models for describing "good vers
 
 - [Tabulations of factor pairs, comparing personality models](https://en.wikipedia.org/wiki/Two-factor_models_of_personality#Other_factor_pairs)  
 
-It is no surprise, that when state-sponsored agents decidedly take action, for hunting down and capturing marginalized human beings, as per their orders, or for sport, they pretend to be objective and rational in the public's eye, only to disguise their discriminatory prejudices and hypocrisies, with scientific lingo and an air of authority. 
+It is no surprise, that when state-sponsored agents decidedly take action, for hunting down and capturing marginalized human beings, as per their orders, or for sport, those agents and their agencies pretend to be objective and rational in the public's eye, only to disguise their discriminatory prejudices and hypocrisies, with scientific lingo and an air of authority. 
 
 [^1]: It is plainly observable that all such personality tests are from Western countries, and that many of them were developed for and by the Nazis, or for and by the Anglo-American forces, during and after the World Wars, to serve the socio-political purposes of those respective camps. 
