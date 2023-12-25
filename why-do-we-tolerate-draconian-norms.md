@@ -24,7 +24,7 @@ Do you see something in common among these countries? Are they somehow the excep
 
 Being pathologized or criminalized, to then be killed or maimed via pernicious or outright violent techniques used by state-sponsored agents, isn't surprising news anymore. It is the most routine thing that simply keeps happening, under the watchful eyes of judiciary and collegiate organizations. 
 
-In fact, First World countries like to come up with things like ["Gini Index"](https://en.wikipedia.org/wiki/Gini_coefficient) or rankings for livability, in which they rank themselves higher than the countries they ruined via colonization, by saying that the surreptitious and genocidal activities undertaken by their government bodies, are less frequent, than those in Third World countries. That, of course, isn't a worthwhile consolation.  
+In fact, First World countries like to come up with things like ["Gini Index"](https://en.wikipedia.org/wiki/Gini_coefficient) or rankings for livability, in which they rank themselves higher than the countries they ruined via colonization, by saying that the surreptitious and genocidal activities undertaken by their government bodies, are less frequent these days, than those in Third World countries. That, of course, isn't a worthwhile consolation.  
 
 Here, I'd like to say a few more words about consolations, considerations, and concessions during negotiations, especially in the context of the actual prisoners' dilemma faced by death row inmates in Qatar. 
 
