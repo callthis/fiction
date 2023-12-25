@@ -66,7 +66,7 @@ I suppose each of us has our own reasons for how and what we choose to do, don't
 
     - [Blowing The Whistle on Canada's Ongoing Crimes Against Humanity and Marginalized Groups](https://github.com/true-hindsight/grim-realities#blowing-the-whistle-on-canadas-ongoing-crimes-against-humanity-and-marginalised-groups)
 
-[^3]: Here is one of the better explanations about how "tit-for-tat policies" have come to be rationalized as being "the best strategy", due to the ideas being pushed by Western consulting companies and universities. The elucidation is from a world renowned, and trustworthy Canadian author of research based multimedia content, whose name and face, is likely to be on the front page cover, of a future edition of Maclean's magazine - 
+[^3]: Here is one of the better explanations about how "tit-for-tat policies" have come to be rationalized as being "the best strategy", due to the ideas being pushed by Western consulting companies and universities. The elucidating video is from a world renowned, and trustworthy Canadian author of research based multimedia content, whose name and face, is likely to be on the front page cover, of a future edition of Maclean's magazine - 
 
     - ["What The Prisoner's Dilemma Reveals About Life, The Universe, and Everything" by Dr. Derek A. Muller, Veritasium, YouTube, 2023-12-23.](https://youtu.be/mScpHTIi-kM)
 
