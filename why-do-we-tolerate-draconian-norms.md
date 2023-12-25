@@ -58,7 +58,13 @@ I suppose each of us has our own reasons for how and what we choose to do, don't
 
 [^1]: Here are links to those articles and Tweets (naturally, Tweets aren't being called "Xs") - 
 
-[^2]: Here are details of Canadian institutes with names and designations of their members and affiliates, who have continued to commit serial acts of cheating, thefts, harassment, molestation, murder, or other forms of harms against targeted individuals, using pernicious and systematic methods (Qatar, may Allah al-Azeem help your institutes become better than those of the pretentious hypocrites in the world) - https://github.com/true-hindsight/grim-realities#blowing-the-whistle-on-canadas-ongoing-crimes-against-humanity-and-marginalised-groups
+    - [Musings on Prisoners' Dilemma](https://github.com/my-realm/musings/blob/main/prisoners-dilemma.md) | https://twitter.com/psyedOut/status/1734532105265369107 
+
+    <br>
+
+    - [National Security Issues for India due to Executions of Its Overseas Citizens](https://github.com/true-foresight/2023-12/blob/main/2023-12-14.md#national-security-issues-for-india-due-to-executions-of-its-overseas-citizens) | https://twitter.com/psyedOut/status/1735335994264859056 
+
+[^2]: Here are details of Canadian institutes with names and designations of their members and affiliates, who have continued to commit serial acts of cheating, thefts, harassment, molestation, murder, or other forms of harms against targeted individuals, using pernicious and systematic methods (Qatar, may Allah al-Azeem help your institutes become better than those of the pretentious hypocrites in the world) - [Blowing The Whistle on Canada's Ongoing Crimes Against Humanity and Marginalized Groups](https://github.com/true-hindsight/grim-realities#blowing-the-whistle-on-canadas-ongoing-crimes-against-humanity-and-marginalised-groups)
 
 [^3]: Here is one of the better explanations about how "tit-for-tat policies" have come to be rationalized as being "the best strategy", due to the ideas being pushed by Western consulting companies and universities. The elucidation is from a world renowned, and trustworthy Canadian author of research based multimedia content, whose name and face, is likely to be on the front page cover, of a future edition of Maclean's magazine - ["What The Prisoner's Dilemma Reveals About Life, The Universe, and Everything" by Dr. Derek A. Muller, Veritasium, YouTube, 2023-12-23.](https://youtu.be/mScpHTIi-kM)
 
