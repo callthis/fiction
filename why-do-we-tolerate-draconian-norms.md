@@ -62,6 +62,10 @@ I suppose each of us has our own reasons for how and what we choose to do, don't
 
 [^1]: Here are links to those articles and Tweets (naturally, Tweets aren't being called "Xs") - 
 
+    - [Must Fragrance Copy Stench, Question Mark](https://github.com/just-noticeable/isr/blob/main/docs/2023-12-09.md#must-fragrance-copy-stench-question-mark) | https://twitter.com/psyedOut/status/1733538762511286557 
+
+    - [The Optics of Executions via Beheading](https://github.com/callthis/fiction/blob/master/optics-of-executions.md) | https://twitter.com/psyedOut/status/1733926657688481957
+
     - [Musings on Prisoners' Dilemma](https://github.com/my-realm/musings/blob/main/prisoners-dilemma.md) | https://twitter.com/psyedOut/status/1734532105265369107  
 
     - [National Security Issues for India due to Executions of Its Overseas Citizens](https://github.com/true-foresight/2023-12/blob/main/2023-12-14.md#national-security-issues-for-india-due-to-executions-of-its-overseas-citizens) | https://twitter.com/psyedOut/status/1735335994264859056  
