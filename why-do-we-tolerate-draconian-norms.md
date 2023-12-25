@@ -16,7 +16,7 @@ The difference between the way state-sponsored crimes against humanity are commi
 
 Qatar would like to be seen as a modern country with a progressive outlook in all other areas of civic life, except for the part where non-Muslims and migrant workers are involved. Similarly, Canada would like to be the country that champions and promotes "The Human Rights Charter", except for the part where non-Christians, indigenous peoples, and migrant workers are involved. Sad, isn't it? It is woefully pathetic! 
 
-However, would things have been different for Canadians and Qatari people in India, if any of them were to be picked up by right-wing nationalists for being members of a community who slaughter and eat cows? No, things would have been similarly tragic, because India would like to be seen as the world's largest democracy with a booming economy, except for the part where non-Hindus, *Dalits,* and migrant workers from Nepal or Bangladesh are involved. 
+However, would things have been different for Canadians and Qatari people in India, if any of them were to be picked up by ultra-right-wing nationalists for being members of a community who slaughter and eat cows? No, things would have been similarly tragic, because India would like to be seen as the world's largest democracy with a booming economy, except for the part where non-Hindus, *Dalits,* and migrant workers from Nepal or Bangladesh are involved. 
 
 How about Israel? Sure, Israel's tourism department and chambers of industry and commerce, would certainly like local as well as international people to invest in their country, except, for anything that has to do with Palestinians and migrant workers from Jordan, Yemen, or Syria. 
 
