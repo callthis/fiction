@@ -55,11 +55,3 @@ I suppose each of us has our own reasons for how and what we choose to do, don't
 [^3]: Here is one of the better explanations about how "tit-for-tat policies" have come to be rationalized as being "the best strategy", due to the ideas being pushed by Western consulting companies and universities. The elucidation is from a world renowned, and trustworthy Canadian author of research based multimedia content, whose name and face, is likely to be on the front page cover, of a future edition of Maclean's magazine - ["What The Prisoner's Dilemma Reveals About Life, The Universe, and Everything" by Dr. Derek A. Muller, Veritasium, YouTube, 2023-12-23.](https://youtu.be/mScpHTIi-kM)
 
     The linchpin in all of the research about Prisoners' Dilemma conducted by numerous research teams working on Game Theoretic Models, throughout the world for the past three decades, is the *assumption* that non-idiomatic discrete options with significantly different, unambiguously discernible, and guaranteed values of pay outs exist, for mutually exclusive *expected* outcomes, in a dilemma. But, they usually don't. Multi-lemmas can be incredibly difficult to parse, let alone, solve towards an equitable outcome, for all parties involved. 
-
----
-
-<div align="center">
-  <p dir="rtl"><a style="text-decoration:none" href="https://translate.google.com/?sl=en&tl=ar&text=Without%20guidance%20from%20The%20Creator%2C%20what%20should%20a%20creature%20do%3F%20There%20is%20no%20power%20nor%20strength%20except%20in%20God.&op=translate>بدون توجيه من الخالق ماذا يجب أن يفعل المخلوق؟ ولا حول ولا قوة إلا بالله.</a></p>
-</div> 
-
-
