@@ -48,9 +48,10 @@ Now, is there any reason for me to be gentlemanly, with regressive authoritarian
 
 I suppose each of us has our own reasons for how and what we choose to do, don't we? However, is that choice truly ours, and ours alone? 
 
-<div align="center">
+<br>
+
 <p dir="rtl"><a style="text-decoration:none" href="https://translate.google.com/?sl=en&tl=ar&text=Without%20guidance%20from%20The%20Creator%2C%20what%20should%20a%20creature%20do%3F%20There%20is%20no%20power%20nor%20strength%20except%20in%20God.&op=translate>بدون توجيه من الخالق ماذا يجب أن يفعل المخلوق؟ ولا حول ولا قوة إلا بالله.</a></p>
-</div> 
+
 
 [^1]: Here are links to those articles and Tweets (naturally, Tweets aren't being called "Xs") - 
 
