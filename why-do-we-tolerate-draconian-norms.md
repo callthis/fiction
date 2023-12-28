@@ -52,7 +52,7 @@ Now, is there any reason for me to be gentlemanly, with regressive authoritarian
 
 I suppose each of us has our own reasons for how and what we choose to do, don't we? However, is that choice truly ours, and ours alone? 
 
->As such, the only thing that the prisoners' dilemma actually reveals is that, as human beings, we can give a bad option a positive spin, by comparing it to a much worse option and then not achieving any outcome that qualifies as bare minimum good. A bad option is most certainly, relatively better than a worst-case scenario, but will opting for the bad choice, make much of a difference? For instance, trying to decide if you should take the Kit-Kat bar from your pocket, and eat it or not, while you hurl towards the Earth at terminal velocity when both of your parachutes have failed to deploy, isn't going to significantly change the eventual outcome. 
+>As such, the only thing that the Prisoners' Dilemma actually reveals is that, as human beings, we can give a bad option a positive spin, by comparing it to a much worse option and then not achieving any outcome that qualifies as bare minimum good. A bad option is most certainly, relatively better than a worst-case scenario, but will opting for the bad choice, make much of a difference? For instance, trying to decide if you should take the Kit-Kat bar from your pocket, and eat it or not, while you hurl towards the Earth at terminal velocity when both of your parachutes have failed to deploy, isn't going to significantly change the eventual outcome. 
 
 <br>
 
