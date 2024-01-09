@@ -50,3 +50,8 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2023-12-20 | Is Santa a Monarchist?](https://github.com/callthis/fiction/blob/master/is-santa-a-monarchist.md)
 
 ### [2023-12-25 | Why do we tolerate draconian norms](https://github.com/callthis/fiction/blob/master/why-do-we-tolerate-draconian-norms.md)
+
+
+## 2024
+
+### [2024-01-09 | More on Personality](https://github.com/callthis/fiction/blob/master/more-on-personality.md)
