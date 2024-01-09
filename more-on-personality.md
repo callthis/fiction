@@ -63,7 +63,7 @@ So, if you would like to know which type of a psychologist or an analyst is bett
 
 A professional who can answer the above types of questions, has at least bothered to ponder about such topics at a more reasonable depth of research and understanding. The rest, should not be qualified as professionals. 
 
-[^1]: By the way, those who aren't even anthropocentric, simply cannot be egocentric or narcissistic. But they can most certainly be morons. 
+[^1]: By the way, those who aren't even anthropocentric, simply cannot be egocentric or narcissistic. But they can most certainly be morons for going up against the powers that be, and then simply perishing in their fight against injustice. 
 
 </details>
 
