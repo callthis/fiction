@@ -2,7 +2,7 @@
 
 The personality type known as a [moron,](https://i.ibb.co/LpsCcgC/moron-with-a-halo.png) is often neglected within psychology research. 
 
-To truly appreciate human nature, in its fullest extent, we ought to address that gap in research. So, we shall first look at some of the pop-culture versions of science about personality traits, that are still being taught to students of Psychology in schools, colleges, and universities. And then, we will have a look at the "Bible of Psychiatry", that has been prescribed to medical professionals in Westernized cultures since the nineteen-fifties. 
+To truly appreciate human nature, in its fullest complexity and extent, we ought to address that gap in research. So, we shall first look at some of the pop-culture versions of science about personality traits, that are still being taught to students of Psychology in schools, colleges, and universities. And then, we will have a look at the "Bible of Psychiatry", that has been prescribed to medical professionals in Westernized cultures since the nineteen-fifties. 
 
 You may click or tap on the following sections to read the full article. 
 
