@@ -22,6 +22,8 @@ Those details have already been published here - https://github.com/callthis/edi
 
 <br>
 
+---
+
 In this article, I will instead try to explain, how the "omelet" is about to hit the ceiling fan.   
 
 I had only two pathways in front of me, in June-2020, after a group of Canadian agents and agencies had their way with me, in "teaching me 'a lesson' in humility and obedience" for posting Tweets and online articles about [anti-racism and anti-colonialism.](https://github.com/serene-solidarity/emblems) 
