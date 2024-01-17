@@ -14,10 +14,10 @@ Moreover, when the cohort of the school year 2015-2016, which I was a part of, c
 
 >"We already have your money, so what are you going to do about it?" 
 
-Snatching the lands, freedoms, liberties, properties, royalties, equities, or monies belonging to unassuming and snared people, and then getting away with it by using lawlessness, has been the hallmark of wild-west movies as a stereotype, but also as an indelible truth and reality of North American history. Unfortunately, those types of unlawful activities have been normalized by various North American institutes and groups that pretend to be august, fair, and just. 
+Snatching the lands, freedoms, liberties, properties, royalties, equities, or monies belonging to unassuming and snared people, and then getting away with it by using lawlessness, has been the hallmark of Wild-West Cowboy movies as a stereotype, but also as an indelible truth and reality of North American history. Unfortunately, those types of unlawful activities have been normalized by various North American institutes and groups that pretend to be august, fair, and just. 
 
-So... is this article going to provide the details about that terrible situation involving UWaterloo-MBET students getting duped and defrauded, which subsequently led me to discovering the clandestine and discriminatory mechanisms used by Canadian federal agencies like Immigration Refugees and Citizenship Canada (IRCC), in systematically colluding with Designated Learning Institutes and Universities Canada for willingly and knowingly harming foreign national students from countries such as Saudi Arabia, Bahrain, India, Malaysia, and Indonesia?   
+So... is this article going to provide the details about that damnable situation involving UWaterloo-MBET students getting duped and defrauded, which subsequently led me to discovering the clandestine and discriminatory mechanisms used by Canadian federal agencies like Immigration Refugees and Citizenship Canada (IRCC), in systematically colluding with Designated Learning Institutes and Universities Canada for willingly and knowingly harming foreign national students from countries such as Saudi Arabia, Bahrain, India, Malaysia, and Indonesia?   
 
-No, those details have already been published here - 
+No, those details have already been published here - https://github.com/callthis/editorial/tree/main/docs#231-organized-crimes
 
 In this article, I will instead try to explain, how the "omelet" is about to hit the ceiling fan.   
