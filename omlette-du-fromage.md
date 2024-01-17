@@ -1,0 +1,23 @@
+## Omlette du Fromage
+
+Wouldn't it be a shame to waste opportunities to say the darnedest truths, all the while allowing wretched and crooked agents from Canadian organizations to double down on their fabricated narratives against persons like myself?  
+
+So, first of all, who are persons like myself? They are, or were immigrants to Canada from working class families, who got snared and baited by false advertisements and misleading endorsements, into wasting the formative years of their lives and heard earned money, by enrolling into and attending certificate programs on Entrepreneurship in Canadian universities. Those bad quality, single year certificate programs were advertised as Master's Degrees from the likes of University of Waterloo (UWaterloo), with promised graduate level coursework in Business, Entrepreneurship, and Technology. 
+
+However, what was actually delivered to students was six months of curriculum, from the first year of what would otherwise be called a Bachelors of Business Administration (BBA) program; and then three more months of something known as "intrapreneurship", which turned out to be a bait and switch tactic to have non-accredited and non-qualified consultants merely show power-point-presentations about technical sales and project management, instead of anything related to venture creation or product development. The remaining three months of that one year master's were completely empty, with no coursework, and were labeled as "practicum", during which time, the students were expected to do whatever they felt like doing, in order to show that they either worked in an existing, or tried to create a new, technology based business startup. 
+
+Of course, at no point did the founders and managers of that program teach anything related to engineering production or any topics related to how a new technological product is created using engineering concepts. But, who would be able to complain about that type of a bait and switch tactic, after getting stuck in Canada from a foreign country? Well, it turns out that all of the cohorts of UWaterloo's Master's in Business Entrepreneurship and Technology (MBET) program had complained about how the curriculum changed from year-to-year, with none of the coursework ever being standardized or legitimately accredited as a proper masters degree program by Universities Canada, compared to each of the preceding years of the MBET course being taught at UWaterloo since 2003. 
+
+The methodology and plan of how UWateroo's management uses the MBET program, to specifically and deliberately exclude Canada's students with indigenous or First Nations heritage from higher learning programs using extremely high fees, and to instead target international students from developing countries to pay high fees for a graduate program that circumvents business coursework accreditation requirements, is enshrined within MBET's "strategy map" and "business plan." MBET's and UWaterloo's leadership figured that they could create a loose and dirty university program to demonstrate how loose and dirty startups are created for churning out money, which they succeeded in doing throughout the past two decades. 
+
+Moreover, when the cohort of the school year 2015-2016, which I was a part of, complained to the professors of the MBET program about its poor quality and complete lack of coursework on technology creation, the response from one of the senior professors to the entire class for that complaint was, 
+
+>"We already have your money, so what are you going to do about it?" 
+
+Snatching the lands, freedoms, liberties, properties, royalties, equities, or monies belonging to unassuming and snared people, and then getting away with it by using lawlessness, has been the hallmark of wild-west movies as a stereotype, but also as an indelible truth and reality of North American history. Unfortunately, those types of unlawful activities have been normalized by various North American institutes and groups that pretend to be august, fair, and just. 
+
+So... is this article going to provide the details about that terrible situation involving UWaterloo-MBET students getting duped and defrauded, which subsequently led me to discovering the clandestine and discriminatory mechanisms used by Canadian federal agencies like Immigration Refugees and Citizenship Canada (IRCC), in systematically colluding with Designated Learning Institutes and Universities Canada for willingly and knowingly harming foreign national students from countries such as Saudi Arabia, Bahrain, India, Malaysia, and Indonesia?   
+
+No, those details have already been published here - 
+
+In this article, I will instead try to explain, how the "omelet" is about to hit the ceiling fan.   
