@@ -18,6 +18,6 @@ Snatching the lands, freedoms, liberties, properties, royalties, equities, or mo
 
 So... is this article going to provide the details about that damnable situation involving UWaterloo-MBET students getting duped and defrauded, which subsequently led me to discovering the clandestine and discriminatory mechanisms used by Canadian federal agencies like Immigration Refugees and Citizenship Canada (IRCC), in systematically colluding with Designated Learning Institutes and Universities Canada for willingly and knowingly harming foreign national students from countries such as Saudi Arabia, Bahrain, India, Malaysia, and Indonesia?   
 
-No, those details have already been published here - https://github.com/callthis/editorial/tree/main/docs#231-organized-crimes
+Those details have already been published here - https://github.com/callthis/editorial/tree/main/docs#231-organized-crimes
 
 In this article, I will instead try to explain, how the "omelet" is about to hit the ceiling fan.   
