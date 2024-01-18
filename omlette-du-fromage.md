@@ -66,7 +66,7 @@ How many more vulnerable people have continued to be abused and harmed in Canada
 
 When those rotten service providers from Ontario cunningly concocted a connection between me, and a militia or a mercenary group, what was supposed to be my role within that group of outlaws; what was I to those so-called militia and mercenaries? Was I their accountant? Did they know of my existence, did they care about what I was going through? Who were they? What was their names? Where were they located? 
 
-If any militia and mercenaries in Canada or the USA, had ever come to know I was, wouldn't they have stayed clear of me? 
+If any militia and mercenaries in Canada or the USA, had ever come to know who I was, wouldn't they have stayed clear of me? 
 
 The fact is that Canadian public service units created that utterly fictitious scenario about mercenaries and militia, and framed me by using false and malicious pretexts!
 
