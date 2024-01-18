@@ -56,7 +56,7 @@ It could be somewhat interesting though, to observe and note the ways in which d
 
 I know with some measure of certainty, that the French intelligence agencies already smell blood in the waters,[^2] and that the Chinese ones simply soak up all open sourced data much more rapidly, in order to implement it as policy based action, compared to all other ones on this planet put together. 
  
-So, each of them, can continue to watch me skewer and roast a bunch of corrupt organizations and a few criminal enterprises operating out of Canada and America, or simply ignore all of this. In either case, it's not their job to stop me from publishing autobiographical data or to curtail my freedom of expression, is it?   
+So, each of them, can continue to watch me skewer and roast a bunch of corrupt organizations and a few criminal enterprises operating out of Canada and America, or simply ignore all of this. In either case, it's not the job of those intelligence agencies to stop me from publishing autobiographical data or to curtail my freedom of expression, is it?   
 
 Eventually, at some point in time, readers can ask themselves, if someone has nothing left to lose and is lucid enough to take advantage of the maliciously wrongful ways in which they were pathologized as being mentally deficient or insane, then is that someone actually stupid or deranged? 
 
@@ -68,7 +68,7 @@ How many more vulnerable people have continued to be abused and harmed in Canada
 
 When those rotten service providers from Ontario cunningly concocted a connection between me, and a militia or a mercenary group, What was supposed to be my role within that group of outlaws; what was I to those so-called militia and mercenaries? Was I their accountant? Did they know of my existence, did they care about what I was going through? Who were they? What was their names? Where were they located? 
 
-If any militia and mercenaries in Canada or the USA, had ever come to know who I was, don't you think they wouldn't have stayed clear of me? 
+If any militia and mercenaries in Canada or the USA, had ever come to know who I was, don't you think they would have stayed clear of me? 
 
 The fact is that Canadian public service units created that utterly fictitious scenario about mercenaries and militia, and framed me by using false and malicious pretexts!
 
