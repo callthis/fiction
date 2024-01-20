@@ -60,13 +60,13 @@ So, each of them, can continue to watch me skewer and roast a bunch of corrupt o
 
 Eventually, at some point in time, readers can ask themselves, if someone has nothing left to lose and is lucid enough to take advantage of the maliciously wrongful ways in which they were pathologized as being mentally deficient or insane, then is that someone actually stupid or deranged? 
 
-As for being criminalized for having connections with militia and mercenaries, if I had any, would the wrongdoers who caused the death of my child be allowed to stay alive? 
+As for being criminalized for having connections with militia and mercenaries, if I had any, would the wrongdoers who caused my child's death be allowed to stay alive? 
 
 The police records never mentioned how, and with which militia or mercenary groups I was supposedly connected or affiliated to. The Waterloo Regional Police Services (WRPS) and social workers never needed to mention that in their application of a legal writ to have me arrested and detained. It was simply sufficient for them to fabricate and make up that type of a statement for getting an arrest warrant from a lax and pliable Justice of The Peace, by alluding to me being a terrorist; and to then have used that warrant as a justification to do insidious things to me in a substitute jail, after illegitimately detaining and then drugging me with a high-dosage cocktail of narcotics. 
 
 How many more vulnerable people have continued to be abused and harmed in Canada each day, by those types of corrupt and nefarious public service units and their contracted workers, especially profiled and targeted people injured due to a so-called "warranted action" authorized by court officers and judiciary staff? 
 
-When those rotten service providers from Ontario cunningly concocted a connection between me, and a militia or a mercenary group, What was supposed to be my role within that group of outlaws; what was I to those so-called militia and mercenaries? Was I their accountant? Did they know of my existence, did they care about what I was going through? Who were they? What was their names? Where were they located? 
+When those dastardly and rotten service providers from Ontario, cunningly concocted a connection between me, and a militia or a mercenary group, what according to those corrupt service units was supposed to be my role, within the presumed group of outlaws; what was I to those so-called militia and mercenaries? Was I their accountant? Did they know of my existence, did they care about what I was going through? Who were they? What was their names? Where were they located? 
 
 If any militia and mercenaries in Canada or the USA, had ever come to know who I was, don't you think they would have stayed clear of me? 
 
