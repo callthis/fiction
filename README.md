@@ -56,4 +56,4 @@ An anthology of artistic expressions that might as well be a product of mere ima
 
 ### [2024-01-09 | More on Personality](https://github.com/callthis/fiction/blob/master/more-on-personality.md)
 
-### [2024-01-18 | Omlette du Fromage](https://github.com/callthis/fiction/blob/master/omlette-du-fromage.md)
+### [2024-01-21 | Omelette au Formage](https://github.com/callthis/fiction/blob/master/omelette-au-formage.md)
