@@ -1,6 +1,6 @@
 ## The Burden of Being a Witness to Serious Crimes
 
-A witness is a living proof of an incident, and the process of snuffing out the life, or of assassinating the character of a witness, is usually expensive, gradual, and laborious. So, leave it to lawyers and court officers, in jurisdictions such as Ontario, Canada, to practice subtle forms of throwing shade, and casting doubt on a witness's account, along with technical trickery to do treacherous dirty deeds, to protect offenders, practically for free. 
+A witness is a living proof of an incident, and the process of snuffing out the life, or of assassinating the character of a witness, is usually expensive, gradual, and laborious. So, leave it to certain lawyers and court officers, in jurisdictions such as Ontario, Canada, to practice subtle forms of throwing shade, and casting doubt on a witness's account, along with technical trickery to do treacherous dirty deeds, to protect offenders, practically for free. 
 
 It is all too common that, when certain agents, guilty parties, and their legal counselors feel stressed out, because of presented evidence, they automatically resort to diminishing the value of the given evidence by trying to dismiss it, or by casting doubt upon it, as an automatic form of a self-soothing behavior. The most frequent of such self-soothing behaviors is to claim that a given piece of evidence, or witness testimony, is "an exaggeration." 
 
