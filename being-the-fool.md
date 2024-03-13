@@ -20,12 +20,11 @@ Now, *you* wouldn't ever suspect me of deliberately doing things like,
  
 would you? 
 
-<div align=center>
-
-<img src="./src/not-dirk_gently.jpg" width="55%"></img>
 <br>
-<b>Boku wa bakadesu! Oh, wait! Let me translate that to Korean... 나는 바보입니다</b> 
-
+<div align=center>
+  <img src="./src/not-dirk_gently.jpg" width="55%"></img>
+  <br>
+  <b>Boku wa bakadesu! Oh, wait! Let me translate that to Korean... 나는 바보입니다</b> 
 </div>
 
 ---
