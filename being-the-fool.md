@@ -22,7 +22,7 @@ would you?
 
 <div align=center>
 
-<img src="./src/secretly_greatly-3556.jpg" width="55%"></img>
+<img src="./src/not-dirk_gently.jpg" width="55%"></img>
 <br>
 <b>Boku wa bakadesu! Oh, wait! Let me translate that to Korean... 나는 바보입니다</b> 
 
