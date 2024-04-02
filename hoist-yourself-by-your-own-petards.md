@@ -4,9 +4,9 @@ Suppose, a number of "military contractors" in South America regularized their a
 
 Now, suppose, those mercenary units and ex-soldiers were to hold a serious grudge against people like Americans, Canadians, and against "capitalists", because leaders of those capitalists have for decades, meddled with and sabotaged the peaceful functioning of governments and civic institutions in Central and South America.  
 
-Would it be tragic, surprising, annoying, or ironic, that North American investors have been investing in the strengthening companies, which in turn, intend to destroy American and Canadian interests, especially in Venezuela and Guyana.    
+Would it be tragic, surprising, annoying, or ironic, that North American investors have been investing in the strengthening of those mercenary units and companies in the Americas, which in turn, intend to destroy American and Canadian interests, especially in Venezuela and Guyana.   
 
-The more important and specific industry sectors being promoted and protected by those armed, private security groups in the Caribbean as well as in Central and South America, that are being bolstered by North American investors, happen to include: 
+The more important and specific industry sectors being promoted and protected by those armed, private security groups in the Caribbean as well as in Central and South American countries, that are being bolstered by North American investors, happen to include: 
 
 - Agriculture, food, and drinks sector 
   - Fisheries 
@@ -56,7 +56,7 @@ The more important and specific industry sectors being promoted and protected by
   - Private financiers 
   - Business Process Outsourcing facilities 
 
-- Textile sector 
+- Textile and apparels sector 
   - Labor intensive, raw material processing and textile production using non-unionized, underpaid and bonded workers including child labor 
   
 - Energy production and precision engineering sector 
