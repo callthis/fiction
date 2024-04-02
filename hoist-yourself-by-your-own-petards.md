@@ -8,7 +8,7 @@ Would it be tragic, surprising, annoying, or ironic, that North American investo
 
 The more important and specific industry sectors being promoted and protected by those armed, private security groups in the Caribbean as well as in Central and South American countries, that are being bolstered by North American investors, happen to include: 
 
-- Agriculture, food, and drinks sector 
+- Agriculture, live stock, food, and drinks sector 
   - Fisheries 
   - Cattle, wool, and leather 
   - Milk and Yogurt 
