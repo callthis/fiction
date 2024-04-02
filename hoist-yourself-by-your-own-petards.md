@@ -73,14 +73,14 @@ The more important and specific industry sectors being promoted and protected by
   
 - Sports and modeling sector
   - Construction of sports facilities like stadiums 
-  - Clandestine forms of human trafficking into North America as, "recruitment of young models or athletes who 'may' competitively earn professional contract work with North American brand and sports teams" 
-    - Forced contraception and body shaping procedures imposed on the trafficked individuals, including teenagers, is one of the most problematic yet hidden aspects of sports and modeling sector
+  - Clandestine forms of human trafficking into North America as, "recruitment of young models or athletes who 'may' competitively earn professional contract work with North American brands and sports teams" 
+    - Forced contraception and risky body shaping procedures, imposed on the trafficked individuals, including teenagers, is one of the most problematic yet hidden aspects of sports and modeling sector
   
 - Antique and heritage artifacts sector
-  - A wide range of items smuggled or trafficked into North America via complex network of people and corporate entities for auction houses, museums, and private collectors 
+  - A wide range of items smuggled or trafficked from Central and South America, via complex network of people and corporate entities for delivering those items to auction houses, museums, and private collectors in North America, Asia, and Europe
   
 - Exotic animals sector 
-  - Smuggling of aquatic and terrestrial animals from Central and South America to various countries, through the support of intermediaries and business agencies 
+  - Smuggling of aquatic and terrestrial animals from Central and South America to various countries, through the support of globally networked intermediaries and business agencies 
   
 Areas where North American investors are not keen on funding or even dipping their toes into, include schooling and higher education sectors that aren't lucrative. Social services sector, community support, and prenatal care are the types of things left to philanthropic investors who priorities political and social return on investment over financial returns. 
 
