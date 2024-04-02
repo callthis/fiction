@@ -68,7 +68,8 @@ The more important and specific industry sectors being promoted and protected by
   - Commercial off the shelf drones, modified for military and para-military use 
   
 - Media, communications, and information technology 
-  - A range of broadcast and multimedia companies are directly controlled by North American corporations 
+  - A range of broadcast and multimedia companies are directly controlled by North American corporations in Central and South America
+  - Operating system and firmware for computers and mobile devices 
   
 - Sports and modeling sector
   - Construction of sports facilities like stadiums 
