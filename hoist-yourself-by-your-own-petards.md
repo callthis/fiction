@@ -33,6 +33,7 @@ The more important and specific industry sectors being promoted and protected by
 - Forestry, Minerals, and Fossil Fuels sector 
   - Timber, especially illegal logging 
   - Lithium, cobalt, nickle, silica, tin, copper, iron, manganese, silver, gold, platinum, diamonds, gems and semi-precious stones 
+  - Cement and gravel
   - Crude oil and natural gas 
   - Paints, and refined petrochemicals 
   - Ceramics
