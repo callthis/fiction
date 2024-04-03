@@ -18,7 +18,7 @@ The more important and specific industry sectors being promoted and protected by
   - Mango 
   - Processed and canned fruits, including tomatoes 
   - Avocado and avocado oil 
-  - Tequila, rum, spiced spirits, and wine 
+  - Tequila, rum, cane liquor, spiced spirits, and wine 
   - Acai berries 
   - Blue berries 
   - Chickpeas 
