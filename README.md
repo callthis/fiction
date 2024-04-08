@@ -61,3 +61,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2024-03-05 | The Burden of Being a Witness to Serious Crimes](https://github.com/callthis/fiction/blob/master/the-burden-of-being-a-witness-to-serious-crimes.md)
 
 ### [2024-03-13 | Being The Fool](https://github.com/callthis/fiction/blob/master/being-the-fool.md)
+
+### [2024-04-08 | Is There A Legitimate Monarch on Earth](https://github.com/callthis/fiction/blob/master/is-there-a-legitimatae-monarch-on-earth.md)
