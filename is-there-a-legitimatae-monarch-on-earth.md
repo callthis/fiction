@@ -1,6 +1,6 @@
 ## Is There A Legitimate Monarch on Earth
 
->Only The All Mighty God can debase a creation as The Debaser (al-Khāfiḍ ٱلْخَافِضُ), or exalt a creation as The Exalter (ar-Rāfiʿ ٱلْرَّافِعُ). 
+>Only The All Mighty God can debase a creation as The Debaser (ٱلْخَافِضُ | al-Khāfiḍ), or exalt a creation as The Exalter (ٱلْرَّافِعُ | ar-Rāfiʿ). 
 >
 >Persons like myself are merely a component of an early warning system. 
 
