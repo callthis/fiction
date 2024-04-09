@@ -16,7 +16,7 @@ It can be observed that there are currently a large number of people on Earth, w
 
 Whatever might have been the pretext or reasons for Israeli forces and government officials to launch a war on Palestinian territories, those reasons and presumed pretexts <ins>can never be allowed</ins> to be used as an excuse, to orchestrate murders of aid workers and civilians in Gaza, under any circumstances. The Israelis have belligerently crossed a red line, and they will have to face the necessary consequences. 
 
-Also, can you think of a single monarch who has ordered children to be rescued and saved from wars, as opposed to those who have ordered violence upon countries to obliterate the lives and homes of innocent infants and youths?   
+Also, can you think of a single monarch who has ordered children to be rescued and saved from wars, as opposed to those who have ordered violence upon countries to obliterate the lives and homes of innocent youths and infants?   
 
 One may wonder, if the world's monarchs would be surprised to learn that men, women, and children of their respective nations and countries have also become classified as, "acceptable casualties of war and collateral damage", similar to the way those monarchs, because of their interpersonal rivalries, allowed children in the Middle East to become casualties of war, and collateral damage. 
 
