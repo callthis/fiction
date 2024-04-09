@@ -14,7 +14,7 @@ As such, whenever political and business leaders of the western world are asked 
 
 It can be observed that there are currently a large number of people on Earth, who call themselves monarchs, and yet, not a single one of them would dare travel to, and stand in Gaza, in support of helpless Palestinians who are being brutally subjugated through mass murders, sexual violence, famine, and enforced poverty and deprivation. Each one of those noble monarchs, apparently, has the 'wisdom and foresight' to not stand in opposition to the menacing fiendishness of Israeli government forces that are rampaging through Gaza.[^1] 
 
-Whatever might have been the pretext or reasons for Israeli forces and government officials to launch a war on Palestinian territories, those reasons and presumed pretexts <ins>can never be allowed</ins> to be used as an excuse, to orchestrate murders of aid workers and civilians in Gaza, under the cover of war. The Israelis have belligerently crossed a red line, and they will have to face the necessary consequences. 
+Whatever might have been the pretext or reasons for Israeli forces and government officials to launch a war on Palestinian territories, those reasons and presumed pretexts <ins>can never be allowed</ins> to be used as an excuse, to orchestrate murders of aid workers and civilians in Gaza, under any circumstances. The Israelis have belligerently crossed a red line, and they will have to face the necessary consequences. 
 
 Also, can you think of a single monarch who has ordered children to be rescued and saved from wars, as opposed to those who have ordered violence upon countries to obliterate the lives and homes of innocent infants and youths?   
 
