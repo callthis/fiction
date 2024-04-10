@@ -2,7 +2,7 @@
 
 The younger generation of people, particularly those born after the nineteen-eighties, happen to have a sense of ethics and a value system that prioritizes economic efficiency with equitable treatment of all living beings. Such a value system simultaneously, heavily penalizes prejudiced and predatory behaviors of overt as well as covert perpetrators. 
 
-Especially, the exploitation, rape, or killing of vulnerable people such as minorities, children, the elderly, the disabled, or the infirm, are more severely penalized via social mechanisms of denying respect and adoration to offenders, apart from public censures and admonishments enforced upon the identified perpetrators through all necessary legal means. Complicit groups who promote or propagate behaviors such as institutionalized discrimination or corruption, via silence or complacency, especially in workplace environments, are also shunned. 
+Especially, the exploitation, abuse, rape, or killing of vulnerable people such as minorities, children, the elderly, the disabled, or the infirm, are more severely penalized via social mechanisms of denying respect and adoration to offenders, apart from public censures and admonishments enforced upon the identified perpetrators through all necessary legal means. Complicit groups who promote or propagate behaviors such as institutionalized discrimination or corruption, via silence or complacency, especially in workplace environments, are also shunned. 
 
 Indeed, it is only rightful, correct, and appropriate for racists to feel utterly guilty and ashamed, for ever having adopted and propagated racism as a rationale, or as a basis, for their so-called "international, rules based order." 
 
