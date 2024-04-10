@@ -6,6 +6,6 @@ Especially, the exploitation, abuse, rape, or killing of vulnerable people such 
 
 Indeed, it is only rightful, correct, and appropriate for racists to feel utterly guilty and ashamed, for ever having adopted and propagated racism as a rationale, or as a basis, for their so-called "international, rules based order." 
 
-The direct, willful and cheerful cooperation of succeeding generations of global leaders and rulers, in properly repaying the debt owed from long-overdue reparations, while completely effacing racism and other forms of bigotry from Earth, is therefore, the only rational path forward, towards genuine peace and reconciliation. 
+The direct, willful and cheerful cooperation of succeeding generations of global leaders and rulers, in properly repaying the debt owed from long-overdue reparations, while completely expunging institutional racism and other forms of codified bigotry from Earth, is therefore, the only rational path forward, towards genuine peace and reconciliation. 
 
 As such, any monarchies, corporations, or other types of "traditional" institutions that are out of touch with key sentiments espoused by younger people, are likely to slip away into oblivion, as those obsolete institutions continue to become ever more irrelevant to the daily lives of current and future generations of people, especially to the lives of those younger people who care about a cleaner, peaceful, and an egalitarian ecology, from an existential stand point and necessity.  
