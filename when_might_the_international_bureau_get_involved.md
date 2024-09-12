@@ -16,7 +16,7 @@ More particularly, within a certain lower court dressed up as a "quazi-judiciary
 - The relief requested by the complainant is "inadmissible." 
 
 - The wording and paragraphs showcasing the criminality of the corporate entity, cannot be recognized by the forum (even though the statues allow the quazi judiciary forum to do so, via permission of Central Authority, when a cause of action arises from the submitted evidence in the filed complaint.) 
-- [The complainant is a "party in person" and a layperson without insider knowledge of how things work, particularly on how to appease us while filing the complaint by paying the solicited tribute.] 
+- *[The complainant is a "party in person" and a layperson without insider knowledge of how things work, particularly on how to appease us while filing the complaint by paying the solicited tribute.]* 
 
 <br>  
 
