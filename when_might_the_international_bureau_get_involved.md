@@ -20,7 +20,7 @@ More particularly, within a certain lower court dressed up as a "quazi-judiciary
 
 <br>  
 
-Now, the bribes given to particular Commissionerates as gifts, or homage, or tributes, are often given with the tacit understanding of that "gift or money for 'Prasadam', to be placed before a temple's god." However, there has never been a deaf and dumb Godess or God, in Hindu Mythology, who would actually bless such illicit forms of accruing Prasadam. 
+Now, the bribes given to particular Commissionerates as gifts, or homage, or tributes, are often given with the tacit understanding of that "gift or money for 'Prasadam', to be placed before a temple's god, or to be deposited into a मठ." However, there has never been a deaf and dumb Goddess or God, in Hindu Mythology, who would actually bless such illicit forms of accruing Prasadam. 
 
 Obviously, any type of material goods or cash and cash equivalents become "washed and cleaned" after being "blessed" by the gods for blind devotees, especially for when that so-called Prasadam gets re-distributed to the network of advocates, judges, jurists, commissioners, state and municipal officers, and assistants within each of those compromised public sector offices. Of course, let's not forget the attenders in those offices who can otherwise scuttle a file through "clerical errors", upon being instructed by their superiors to do so via coded messages, if the members of the network aren't kept happy, content, and blissfully honoured. 
 
