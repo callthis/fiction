@@ -1,4 +1,5 @@
 # fiction
+
 An anthology of artistic expressions that might as well be a product of mere imagination. So let's call this fiction.
 
 ## 2020 
@@ -65,3 +66,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2024-04-08 | Is There A Legitimate Monarch on Earth](https://github.com/callthis/fiction/blob/master/is-there-a-legitimatae-monarch-on-earth.md)
 
 ### [2024-04-10 | Consumer Confidence and Sentiments Do Matter](https://github.com/callthis/fiction/blob/master/consumer-confidence-and-sentiments-do-matter.md)
+
+### [2024-09-23 | Basic Concept of Credit](https://github.com/callthis/fiction/blob/master/basic-concept-of-credit.md)
