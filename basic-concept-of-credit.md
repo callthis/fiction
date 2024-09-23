@@ -2,7 +2,7 @@
 
 <br>  
 
->*Surely, this online article is entirely about a factious and an imaginary concept called credit, isn't it?*  
+>*Surely, this online article is entirely about a fictitious and an imaginary concept called credit, isn't it?*  
 
 <br>  
 
