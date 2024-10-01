@@ -67,4 +67,6 @@ An anthology of artistic expressions that might as well be a product of mere ima
 
 ### [2024-04-10 | Consumer Confidence and Sentiments Do Matter](https://github.com/callthis/fiction/blob/master/consumer-confidence-and-sentiments-do-matter.md)
 
+### [2024-04-12 | How and When Might The International Bureau Get Involved in a Case](https://github.com/callthis/fiction/blob/master/when_might_the_international_bureau_get_involved.md)
+
 ### [2024-09-23 | Basic Concept of Credit](https://github.com/callthis/fiction/blob/master/basic-concept-of-credit.md)
