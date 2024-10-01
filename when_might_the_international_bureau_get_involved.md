@@ -1,4 +1,4 @@
-## How and when might the International Bureau get involved in a case
+## How and When Might The International Bureau Get Involved in a Case
 
 
 Suppose, and I mean, suppose, a corporation in India has been cheating customers and amassing huge sums of unearned incomes each day, by cunningly overcharging innocent customers from local and international regions, while providing substandard goods and services. Now suppose, that the same corporation has continued to embezzle that money by stashing and hiding it from the "Excise Duty and Income Tax Offices" of Central and State governments. Then, after doing such waywardly activities for more than a decade, the corporation becomes confident in running its operations by snaring the local police and various Commissionerates. That corporation then starts to conduct activities involving mafia tactics for abductions, multiple forms of extortion, imports and exports of goods without proper tax deductions, and other illicit trades across state and international borders. 
