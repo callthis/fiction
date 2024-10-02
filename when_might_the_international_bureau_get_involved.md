@@ -35,5 +35,6 @@ You see, even with the use of Artificial Intelligence (AI) and months of sustain
 The moral of this story is that, not each crime syndicate's boss can simply escape like Vijay Malaya to crook-havens. And also that, each among the persons who have Labuored And Dredged Successfully in the rough, eventually earn a standard troy ingot of fine gold from the Canadian Mint or a pure 19 carat sapphire from their earnest and legitimate work, with which they can obtain more meaningful and worthy living conditions in a healthier ecology. 
 
 <div align="center">
-<p><a href="https://github.com/just-noticeable/damroo/blob/main/halting-the-global-round-trip-of-embezzled-monies.md">Khulja Simsim</a></p> 
+  <p><a href="https://github.com/just-noticeable/damroo/blob/main/halting-the-global-round-trip-of-embezzled-monies.md">Khulja Simsim</a></p>   
+  <p>* * <b>*</b> * *</p> 
 </div>
