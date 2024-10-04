@@ -23,3 +23,24 @@ An entity in the form of a corporation or an association of persons or a constit
 >Particular healthcare providers cheating Consumers by transacting unfairly-priced post-paid products and services, without invoices, particularly in the guise of pay-on-delivery goods, is an ongoing form of criminal abuse of innocent Consumers, that needs to be curtailed immediately.[^1] 
 
 [^1]: As if, having to suffer the harms from crimes and wrongful deeds, committed by numerous Canadian public-service units and private corporations in Ontario wasn't painful enough, some of the Indian "duty-bound" public-service providers and "laudable" corporations in Ranga Reddy District of Hyderabad, Telangana, India, are truly insufferable! 
+
+<br>  
+
+---
+
+<div align="center">
+  
+  **[:arrow_left: Previous Article][Prev] | [Next Article :arrow_right:][Next]** 
+  
+  **[Table of Content][TOC]**
+
+  [Prev]: /a-closer-look-at-cghs.md
+  [TOC]: /README.md#damroo
+  [Next]: /
+
+  
+  <p>* * <b>*</b> * *</p> 
+  
+</div>
+
+<br>
