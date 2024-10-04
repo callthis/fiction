@@ -1,6 +1,6 @@
 ## International Rules-based Order, Question Mark 
 
-Using the phrase, "agreement-based interactions", can be a better way to discuss nuances of ongoing changes within the our world's geo-political stage and international arena. This could be specially useful, compared to hemming and hawing, or fuming and fussing about the natural-consequence-based changes, that are currently occurring within the so-called "international, rules-based order." 
+Using the phrase, "agreement-based interactions", can be a better way to discuss nuances of ongoing changes within our world's geo-political stage and international arena. This could be specially useful, compared to hemming and hawing, or fuming and fussing about the natural-consequence-based changes, that are currently occurring within the so-called "international, rules-based order." 
 
 Disarmament and agreement-based meetings, can most certainly incorporate aspects of competition and complementary behaviors among multi-ethnic and multi-national parties, without formal allegiances or treaties governing those interactions. Admittedly, disagreement-based interactions can become naturally confrontational, though they need not be. But more importantly, the likelihood of cyber-warfare-based attacks escalating into different forms of armed conflicts, and even into animosity laden hostilities, is definitely palpable and measurable. 
 
