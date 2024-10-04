@@ -30,6 +30,8 @@ An entity in the form of a corporation or an association of persons or a constit
 
 <div align="center">
   
+  <p>Choose your own adventure!</p> 
+  
   **[:arrow_left: Previous Article][Prev] | [Next Article :arrow_right:][Next]** 
   
   **[Table of Content][TOC]**
