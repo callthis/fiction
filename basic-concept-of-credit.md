@@ -38,11 +38,9 @@ An entity in the form of a corporation or an association of persons or a constit
 
   [Prev]: https://github.com/just-noticeable/damroo/blob/main/a-closer-look-at-cghs.md
   [TOC]: https://github.com/just-noticeable/damroo?tab=readme-ov-file#damroo
-  [Next]: https://github.com/just-noticeable/damroo/
+  [Next]: https://github.com/just-noticeable/damroo/blob/main/brace-brace-brace.md
 
   
   <p>* * <b>*</b> * *</p> 
   
 </div>
-
-<br>
