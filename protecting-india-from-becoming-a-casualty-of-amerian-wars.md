@@ -1,4 +1,4 @@
-## Preventing India from Becoming a Casualty of American Wars
+## Protecting India from Becoming a Casualty of American Wars
 
 International cyber-attacks a per the American "Doctrine of Full-Spectrum Warfare" that involved pump-and-dump schemes against Indian National Stock Exchange (NSE), targeted the share value of stocks of companies such as Maruti Suzuki Ltd [(MARUTI)](https://www.google.com/finance/quote/MARUTI:NSE?window=YTD). Those attacks caused the Exchange Traded Funds (ETFs) in the NSE which had components of those plummeting stocks to also take a hit. The main effect of such cyber-attacks have been to reduce and stall the ability of a company like MARUTI to raise money for building new assembly lines in "Next-Gen" factories for electric vehicles. India, is thus going to remain 10 to 15 years behind other countries like China, South Korea, Japan, the US, the UK and western Europe, in switching away from polluting and inefficient internal combustion engines that rely on petrol or diesel. 
 
