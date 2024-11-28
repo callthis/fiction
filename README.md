@@ -72,3 +72,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2024-09-23 | Basic Concept of Credit](https://github.com/callthis/fiction/blob/master/basic-concept-of-credit.md)
 
 ### [2024-10-18 | Imaginary Upcoming Scenarios Involving Stock Markets in Southern Asia](https://github.com/callthis/fiction/blob/master/imaginary-upcoming-scenarios-involving-stock-markets-in-southern-asia.md)
+
+### [2024-11-28 | Protecting India from Becoming a Casualty of American Wars](https://github.com/callthis/fiction/blob/master/protecting-india-from-becoming-a-casualty-of-amerian-wars.md)
