@@ -1,6 +1,10 @@
 ## Lab Incubated Twins
 
->Now this one is pure fiction, for sure, right? 
+<br>
+
+>Now this one is pure fiction, for sure, right? But it does illustrate a whole new dimension pertaining to the ethics and morality of abortions, doesn't it? 
+
+<br>
 
 In the nineteen-seventies and eighties, a government program would take zygotes from abortion clinics, and implant them in surrogate women. The women who would go to abortion clinics, would be told that their unwanted pregnancy was terminated. And other women who were in need of fertility treatment, would be told that they were being given a healthy fertilized egg. The harvested zygote would be implanted into the uterus of the surrogate woman, and in some cases, it would be successfully carried to term. 
 
@@ -16,12 +20,11 @@ One could, technically speaking, use carbon-dating techniques to look at the age
 
 Of course, all of this could be a load of farce and genuine fiction, right? Is it because I'm merely telling you the story of a TV show called "Blindspot" and of a movie called "What Happened to Monday?" 
 
-
 <div align="center">
 
-	<img href=" " width="35%"> &nbps;&nbps; <img href=" " width="35%"> 
+	<img src="https://imgs.search.brave.com/G90i5kX15863wE6YQjsImCgQG6iUu_v7Q85WuNNiQpI/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9tLm1l/ZGlhLWFtYXpvbi5j/b20vaW1hZ2VzL00v/TVY1Qk5EZGhaREEy/TVRZdE4yRXlZaTAw/T0RrNExXSTNObVV0/TWpNNE56azVPRFkx/TnpWbVhrRXlYa0Zx/Y0djQC5qcGc" width="35%"></img> &nbps;&nbps; <img src="https://imgs.search.brave.com/4PdVNUxINSWrJ3_NhLzzi30crNxE4t8XSPOpLZiiU4M/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9zdGF0/aWMxLmNvbGxpZGVy/aW1hZ2VzLmNvbS93/b3JkcHJlc3Mvd3At/Y29udGVudC91cGxv/YWRzLzIwMTcvMDgv/d2hhdC1oYXBwZW5l/ZC10by1tb25kYXkt/bm9vbWktcmFwYWNl/LTYwMHg0MjAuanBn" width="35%"></img> 
 
-<div>
+</div>
 
 <br>
 
