@@ -18,7 +18,7 @@ Now, if I were to tell you that, another government program harvested my mitocho
 
 One could, technically speaking, use carbon-dating techniques to look at the age of the DNA found by an investigative agency and check to see if it simply stopped aging decades ago, even if it matches with an individual's current genetic material. Doing that would help those agencies answer the question of how they keep finding my DNA in a country that I have never been in, especially when those agencies have had real-time data about my location since early two-thousands. 
 
-Of course, all of this could be a load of farce and genuine fiction, right? Is it because I'm merely telling you the story of a TV show called "Blindspot" and of a movie called "What Happened to Monday?" 
+Of course, all of this could be a load of farce and genuine fiction, right? And is it simply because I'm telling you a mash-up story using the plot points of a TV show called "Blindspot" and of a movie called "What Happened to Monday?" 
 
 <div align="center">
 
