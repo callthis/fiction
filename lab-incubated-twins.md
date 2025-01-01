@@ -6,13 +6,13 @@
 
 <br>
 
-In the nineteen-seventies and eighties, a government program would take zygotes from abortion clinics, and implant them in surrogate women. The women who would go to abortion clinics, would be told that their unwanted pregnancy was terminated. And other women who were in need of fertility treatment, would be told that they were being given a healthy fertilized egg. The harvested zygote would be implanted into the uterus of the surrogate woman, and in some cases, it would be successfully carried to term. 
+In the nineteen-seventies and eighties, a government program would take zygotes from abortion clinics, and implant them in surrogate women. The women who would go to abortion clinics, would be told that their unwanted pregnancy was terminated. And other women who were in need of fertility treatment, would be told that they were given a healthy fertilized egg. The harvested zygote would be implanted into the uterus of the surrogate woman, and in some cases, it would be successfully carried to term. 
 
 All those gullible and unassuming women were basically farmed by the particular government program, for "betterment of the nation." That secret program was carried out, mostly because, persons in leadership position of the nation had their communist and socialist sense of ethics, through which they cajoled themselves, by pretending that a child was saved by, technically, not aborting the pregnancy and by instead transferring it to a woman who wanted to get pregnant. 
 
-The women and their children were any ways thought of as the "ward and property of the state", by those so-called supreme leaders. So harvesting children from biological factories was more of a veterinarian and agricultural design, in which humans were merely treated as dumb chattel.  
+The women and their children were any ways thought of as the "ward and property of the state", by those so-called supreme leaders. In that sense, harvesting children from biological factories was more of a veterinarian and agricultural design, in which humans were merely treated as dumb chattel.  
 
-So, if I were to tell you that I was born out of that program, and that there are at least 4 other siblings of mine, of which one is a twin, all of whom were planted into the wombs of government owned households across the country, during the years 1970 to 1990, would you believe me? 
+So, if I were to tell you that I was born out of that program, and that there are at least 4 other siblings of mine somewhere on this planet, of which one is a twin, all of whom were planted into the wombs of government owned households across the country, during the years 1970 to 1990, would you believe me? 
 
 Now, if I were to tell you that, another government program harvested my mitochondrial DNA when I was 6 years old, 8 years old, and also when I was 12 years old, to store that DNA in a petri dish within a cold storage, only to clone t-cells with that DNA and disperse it in places across the world, so as to mess with crime scene investigation units of various countries, would you bother to believe me? 
 
@@ -30,4 +30,4 @@ Of course, all of this could be a load of farce and genuine fiction, right? And 
 
 <br>
 
->Nazis, Americans, British, and other Europeans weren't the only ones conducting advanced biochemical experiments with humans during and after World War II. 
+>Nazis, Americans, British, and other Europeans weren't the only ones conducting advanced biochemical experiments on humans, during and after World War II. 
