@@ -20,7 +20,7 @@ One could, technically speaking, use carbon-dating techniques to look at the age
 
 Of course, all of this could be a load of farce and genuine fiction, right? And is it simply because I'm telling you a mash-up story using the plot points of a TV show called "Blindspot" and of a movie called "What Happened to Monday?" 
 
-<div align="center">
+<div align=center>
 
 	<img src="https://imgs.search.brave.com/G90i5kX15863wE6YQjsImCgQG6iUu_v7Q85WuNNiQpI/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9tLm1l/ZGlhLWFtYXpvbi5j/b20vaW1hZ2VzL00v/TVY1Qk5EZGhaREEy/TVRZdE4yRXlZaTAw/T0RrNExXSTNObVV0/TWpNNE56azVPRFkx/TnpWbVhrRXlYa0Zx/Y0djQC5qcGc" width="35%"></img> &nbps;&nbps; <img src="https://imgs.search.brave.com/4PdVNUxINSWrJ3_NhLzzi30crNxE4t8XSPOpLZiiU4M/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9zdGF0/aWMxLmNvbGxpZGVy/aW1hZ2VzLmNvbS93/b3JkcHJlc3Mvd3At/Y29udGVudC91cGxv/YWRzLzIwMTcvMDgv/d2hhdC1oYXBwZW5l/ZC10by1tb25kYXkt/bm9vbWktcmFwYWNl/LTYwMHg0MjAuanBn" width="35%"></img> 
 
