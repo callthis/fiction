@@ -20,11 +20,11 @@ One could, technically speaking, use carbon-dating techniques to look at the age
 
 Of course, all of this could be a load of farce and genuine fiction, right? And is it simply because I'm telling you a mash-up story using the plot points of a TV show called "Blindspot" and of a movie called "What Happened to Monday?" 
 
-<div align="center">
+<p align="center">
 
 	text  
 
-</div>
+</p>
 
 <br>
 
