@@ -1,4 +1,4 @@
-## Centrality of a situation
+## Centrality of a Situation
 
 Regardless of the central issue within a situation, the forceful habit of colonial or imperial minded leaders like Donald Trump, is to turn all possible situations brought to their attention, into an issue about needing to pay appropriate forms of homage and "respect" to them. This is one of the main reasons for why issues like racism, cross-border crimes, climate change, or payment of reparations for state-sponsored violations against profiled people, never gets properly redressed.  
 
