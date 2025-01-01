@@ -76,3 +76,5 @@ An anthology of artistic expressions that might as well be a product of mere ima
 ### [2024-11-28 | Protecting India from Becoming a Casualty of American Wars](https://github.com/callthis/fiction/blob/master/protecting-india-from-becoming-a-casualty-of-amerian-wars.md)
 
 ### [2024-12-23 | Few of The Mechanisms Used by Certain Corporate Bad-Actors for Exploiting The Indian Judicial System](https://github.com/callthis/fiction/blob/master/mechanisms-used-by-certain-hospitals-for-exploiting-indian-judicial-system.md)
+
+### [2025-01-01 | Lab Incubated Twins](https://github.com/callthis/fiction/blob/master/mechanisms-used-by-certain-hospitals-for-exploiting-indian-judicial-system.md)
