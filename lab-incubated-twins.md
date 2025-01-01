@@ -22,7 +22,7 @@ Of course, all of this could be a load of farce and genuine fiction, right? And 
 
 <div align="center">
 
-	<p>text</p>  
+	text  
 
 </div>
 
