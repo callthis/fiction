@@ -28,6 +28,6 @@ Those wrongdoers know all too well that, any fines or penalties eventually levie
 
 <br>
 
-[^1]: Do you need substantiations for such statements about abuses people like me have suffered in the USA? Here you go - https://github.com/true-hindsight/long-overdue-justice#long-overdue-justice 
+[^1]: Do you need substantiations for such statements, about the types of abuses people like me have suffered in the USA? Here you go - https://github.com/true-hindsight/long-overdue-justice#long-overdue-justice 
 
 [^2]: to ambush = to taunt someone and trap them (घात लगाना = किसी को ललकारना और फँसाना)
