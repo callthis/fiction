@@ -81,4 +81,4 @@ An anthology of artistic expressions that might as well be a product of mere ima
 
 ### [2025-01-01 | Lab Incubated Twins](https://github.com/callthis/fiction/blob/master/lab-incubated-twins.md)
 
-### [2025-01-05 | AI Generated Blue Ocean Strategies](https://github.com/callthis/fiction/blob/master/ai-generated-blue-ocean-strategey.md)
+### [2025-01-05 | AI Generated Blue Ocean Strategies](https://github.com/callthis/fiction/blob/master/ai-generated-blue-ocean-strategies.md)
