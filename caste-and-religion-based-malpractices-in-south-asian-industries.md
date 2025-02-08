@@ -8,7 +8,7 @@ In this why, a country-wide elevated threat and a measurable danger for riots cu
 
 This is a much more problematic issue than few doctors in various regions of India, who sadistically enjoy slashing or gashing patients within their operation rooms, or those who experiment on gullible victims using unethical medical techniques. 
 
->So, the malpractice insurance rate of all Indian medicos will need to increase by 6 folds, if any hospitals continue such felonies.[^1]
+>So, the malpractice insurance rate of all Indian medicos will need to be increased by 6 folds, if any hospitals continue such felonies.[^1]
 
 You can downplay this article about such malpractices, specifically occurring among India's accredited healthcare corporations, as an "exaggeration" or as a "lie" or as a piece of "fiction", at your own peril and risk, and at the cost of thousands of innocent lives in each city of India being potentially lost to eventual mob violence, if those bad hospitals and their Managing members aren't brought to justice. 
 
