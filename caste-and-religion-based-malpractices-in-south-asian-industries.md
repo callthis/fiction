@@ -10,6 +10,6 @@ In this why, a country-wide elevated threat and imminent danger for riots curren
 
 This is a much more problematic issue than few doctors in various regions of India, who sadistically enjoy slashing or gashing patients within their operation rooms, or those who experiment on gullible victims using unethical medical techniques. 
 
-You can downplay this article about such malpractices, particularly occurring among India's accredited healthcare corporations, as an "exaggeration" or as a "lie" or as a piece of "fiction", at your own peril and risk, and at the cost of thousands of innocent lives in each city of India being potentially lost to eventual mob violence, if those bad hospitals and their Managing members aren't brought to justice. 
+You can downplay this article about such malpractices, specifically occurring among India's accredited healthcare corporations, as an "exaggeration" or as a "lie" or as a piece of "fiction", at your own peril and risk, and at the cost of thousands of innocent lives in each city of India being potentially lost to eventual mob violence, if those bad hospitals and their Managing members aren't brought to justice. 
 
 Cities from Amritsar to Kanya Kumari could burn, will burn, if the so-called Elites in India continue to abuse fellow human beings as chattel, or continue to push for slavery based practices, within any industry sector. 
