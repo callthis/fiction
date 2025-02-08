@@ -1,6 +1,6 @@
 # Caste and Religion Based Malpractices in South Asian Industries
 
-The felony of keeping people captive or wrongfully confined, particularly as collateral property for debt collection, has a potential for causing riots throughout India. 
+The felony of keeping dead bodies, biological samples, or people, under confinement or captivity, particularly as collateral property for debt collection, has a potential for causing riots throughout India. 
 
 Currently, various corporate bosses and doctors operating hospitals and clinics in India, are doing grossly lethal and destructive things against the integrity and sovereignty of The Republic, merely for increasing their profits through tax-evasion, and by cutting safety measures that have continued to thrust innocent patients into harms way. Those doctors and healthcare mangers are doing such destructive things against the well being of ***systematically targeted Central Government workers and retirees,*** due to unchecked greed, and due to willful malice orchestrated against salaried or pensioned, yet economically poorer sections of society.  
 
