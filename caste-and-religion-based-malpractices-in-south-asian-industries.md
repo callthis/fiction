@@ -6,7 +6,7 @@ Currently, various corporate bosses and doctors operating hospitals and clinics 
 
 In this why, a country-wide elevated threat and a measurable danger for riots currently exits in India, because upper-cast Hindu corporate bosses and medical practitioners of various hospitals, in several Indian states, have been habitually and deliberately holding patients belonging to Muslim, Sikh, Christian, and other minorities or Dalit groups, as captive chattel and as leverage, for extorting money from family members of those patients, under the guise of debt collection for the hospital's "rendered medical goods and services."
 
-This is a much more problematic issue than few doctors in various regions of India, who sadistically enjoy slashing or gashing patients within their operation rooms, or those who experiment on gullible victims using unethical medical techniques. 
+This is a much more problematic issue than the issue of a few doctors in various regions of India, sadistically enjoying slashing or gashing patients within their operation rooms, or that of some clinicians experimenting on gullible victims using unethical medical techniques. 
 
 >So, the malpractice insurance rate of all Indian medicos will need to be increased by 6 folds, if any hospitals continue such felonies.[^1]
 
