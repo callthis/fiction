@@ -10,7 +10,7 @@ Funny as it may sound, now that I am back on Earth, I have come to learn the bas
 
 People these days say that I had touched my daughter with my hand and as a consequence of that, every manner of flesh became a commodity. Supposedly, if even a king's daughter could be used as a token or as a bargaining chip, instead of some type of coins or promissory notes, then certainly, all other human beings and animal flesh could also be bought and sold, in a marketplace. 
 
-I have also come to know about a story of another king's daughter called Draupadi, who was placed as a wager in a game of chance. It is tragic to see that people have not yet derived any worthwhile lessons from those mystical tales and mythical folklore. Worse, those ignorant and ignoble people are still risking the lives of their kith and kin, through gambling for money and property. 
+I have also come to learn about a story of another king's daughter called Draupadi, who was placed as a wager in a game of chance. It is tragic to see that people have not yet derived any worthwhile lessons from those mystical tales and mythical folklore. Worse, those ignorant and ignoble people are still risking the lives of their kith and kin, through gambling for money and property. 
 
 I should like to clarify that I had never intended to promote or propagate slavery, I still find it repugnant and reviling. One should know that a human being has the rightful ability to breath clean air and live freely, only by the permission and authority of The Supreme Lord, and The Owner of The Judgment Day. 
 
