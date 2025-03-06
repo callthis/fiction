@@ -16,9 +16,9 @@ I should like to clarify that I had never intended to promote or propagate slave
 
 Neither is it correct for me or for any other person, to take away that breath or to harass that life by using any type of force, nor is it correct to assert ownership over someone's life to treat them as a chattel. I have never owned my life for that matter, and that is because, my life belongs to The One and Only Creator of The Universe. It is for this reason, that the life imbued within a body that I happen to inhabit, is only in the service of The Ultimate and Supreme God of all that is and isn't. 
 
-And yet, my subjects ran afoul of my ordinances and of The Laws of The Realm. Pathetic and sad, isn't it? 
-
 Previously, I had even tried to hide my burial site, within an array of burial mounds and pyramids in Anatolia. I had ordered that my coffin and burial chamber not be set in the middle of the mound, so that grave robbers plumbing for treasure at the middle of a supposed burial site, would not be able to find my grave to defile and plunder it. More importantly, I had gone to such troubles to hide my grave so that when I had died, and had been suitably laid to rest, it was my hope that people would not be able to find my dead body to use it as a trinket, or as a relic, or as a shrine, by embalming any part of my dead remains. 
+
+And yet, my subjects ran afoul of my ordinances and of The Laws of The Realm. Pathetic and sad, isn't it? 
 
 It is truly unlawful to desecrate or to defile a dead body, it is indeed unlawful and utterly wrong to use a dead body or any part of a deceased human being, as a commodity or as a religious relic or as a piece of collateral property. The dead body must be returned to Earth, with honour and dignity. 
 
