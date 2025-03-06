@@ -12,7 +12,7 @@ People these days say that I had touched my daughter with my hand and as a conse
 
 I have also come to learn about a story of another king's daughter called Draupadi, who was placed as a wager in a game of chance. It is tragic to see that people have not yet derived any worthwhile lessons from those mystical tales and mythical folklore. Worse, those ignorant and ignoble people are still risking the lives of their kith and kin, through gambling for money and property. 
 
-I should like to clarify that I had never intended to promote or propagate slavery, I still find it repugnant and reviling. One should know that a human being has the rightful ability to breath clean air and live freely, only by the permission and authority of The Supreme Lord, and The Owner of The Judgment Day. 
+I should like to clarify that I had never intended to promote or propagate slavery, I still find it repugnant and reviling. One should know that a human being has the rightful ability to breath clean air and live freely, only by the permission and authority of The Supreme Lord — The Owner of The Judgment Day. 
 
 Neither is it correct for me or for any other person, to take away that breath or to harass that life by using any type of force, nor is it correct to assert ownership over someone's life to treat them as a chattel. I have never owned my life for that matter, and that is because, my life belongs to The One and Only Creator of The Universe. It is for this reason, that the life imbued within a body that I happen to inhabit, is only in the service of The Ultimate and Supreme God of all that is and isn't. 
 
