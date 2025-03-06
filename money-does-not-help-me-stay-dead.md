@@ -8,7 +8,7 @@ My way of showing approbation for things that could be exchanged for equivalent 
 
 Funny as it may sound, now that I am back on Earth, I have come to learn the bastardized version of my life's story. People these days have contorted my rules and regulations, to say that anything I used to touch, "would become gold." I should like to correct them, and let them know that I never had the magical power of Alchemy, that too, I certainly did not have the ability to turn things into gold by merely touching those things. I can assure you, no being on Earth has ever had that type of an alchemist's or a magician's trait.  
 
-People these days say that I had touched my daughter with my hand and as a consequence of that, every manner of flesh became a commodity. Supposedly, if even a king's daughter could be used as a token or as a bargaining chip, instead of gold coins, then certainly, all other human beings and animal flesh could also be bought and sold, in a marketplace. 
+People these days say that I had touched my daughter with my hand and as a consequence of that, every manner of flesh became a commodity. Supposedly, if even a king's daughter could be used as a token or as a bargaining chip, instead of some type of coins or promissory notes, then certainly, all other human beings and animal flesh could also be bought and sold, in a marketplace. 
 
 I have also come to know about a story of another king's daughter called Draupadi, who was placed as a wager in a game of chance. It is tragic to see that people have not yet derived any worthwhile lessons from those mystical tales and mythical folklore. Worse, those ignorant and ignoble people are still risking the lives of their kith and kin, through gambling for money and property. 
 
