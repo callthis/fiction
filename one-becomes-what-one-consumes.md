@@ -1,4 +1,4 @@
-# One becomes what one consumes. 
+## One becomes what one consumes 
 
 So let us see if imperialists and colonialists have become more humanitarian and humane, by their acts of consuming humans, via their war machines? No, they haven't. 
 
