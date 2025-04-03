@@ -85,4 +85,4 @@ An anthology of artistic expressions that might as well be a product of mere ima
 
 ### [2025-02-08 | Caste and Religion Based Malpractices in South Asian Industries](https://github.com/callthis/fiction/blob/master/caste-and-religion-based-malpractices-in-south-asian-industries.md)
 
-### [2025-02-08 | Money Does Not Help Me Stay Dead](https://github.com/callthis/fiction/blob/master/money-does-not-help-me-stay-dead.md)
+### [2025-03-06 | Money Does Not Help Me Stay Dead](https://github.com/callthis/fiction/blob/master/money-does-not-help-me-stay-dead.md)
