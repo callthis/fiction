@@ -131,7 +131,7 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 
 - Prompt:
 
-	*[text of the last three paragraphs of the main article.] *
+	*[text of the last three paragraphs of the main article.]*
 	
 - ChatGPT Output: 
 
@@ -141,9 +141,9 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 
 	**Sentiment Analysis:**
 
-	Polarity: -0.75 (Negative sentiment)
+	- Polarity: -0.75 (Negative sentiment)
 
-	Subjectivity: 0.85 (High subjectivity)
+	- Subjectivity: 0.85 (High subjectivity)
 
 	The sentiment of the text is overwhelmingly negative. It criticizes the U.S. government’s approach to foreign policy, accusing it of dishonesty, manipulation, and selfishness. The tone is harsh and condemning, with a strong focus on the harmful impact of American actions on global relations. The subjectivity is high, as the text conveys personal opinions and judgments about U.S. behavior rather than presenting objective facts.
 
@@ -169,8 +169,7 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 
 		- *Original: "Being sneaky, dishonest, underhanded, insincere, surreptitious..."*
 		
-		- *Revised: "Engaging in covert or deceptive tactics, undermining transparency..."* 
-	
+		- *Revised: "Engaging in covert or deceptive tactics, undermining transparency..."*	
 
 	2. **Provide Factual Evidence**:
 
@@ -234,7 +233,7 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 	
 - Prompt: 
 
-	Is the currently available version of IBM Watson obsolete, compared to latest version of ChatGPT?  
+	Is the currently available version of IBM Watson obsolete, compared to latest version of ChatGPT?  
 
 	
 - ChatGPT Output: 
