@@ -1,6 +1,6 @@
 ## America-Taiwan Relations, Question Mark 
 
-<sub><b>Author: Sameer Khan | Published Online: 23-09-2024 | Edited version: 27-09-2025</b></sub>
+<sub><b>Author: Sameer Khan | Published Online: 23-09-2024 | Edited: 27-09-2025</b></sub>
 
 American lawmakers and government officials have never truly believed and honestly stated that the island or region of Taiwan, is an authentic and legally constituted sovereign country on Earth, due to its own right and freedom to be as such. Those American senators and officials have only believed and stated that they will "support" whatever it is that Taiwan happens to be, as long as it is profitable and suitable for the American government to maintain America's self-proclaimed image as the 'uni-polar' world's most dominant, 'Supreme Overlord and Highest Super Power.'  
 
@@ -117,6 +117,7 @@ So, comparing the two commercial AI, I would say that IBM Watson does a better j
 
 Unfortunately, popular AI have not yet been trained to detect content that is supposed to be humorous or sarcastic, within a given content's tone and sentiment, which would be a more fine-grained analysis than simplistic labels of "positive vs negative." However, I would say that both IBM's and Google's AI missed the mark on labeling the content as neutral, or slightly negative. Of course, by no means was this article's content about positively praising, any particular entity. For sure! LOL :laughing:  
 
+<br>
 
 #### 27-09-2025 | Updated comparison with ChatGPT:
 
@@ -124,21 +125,21 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 
 	Summarize and produce a sentiment analysis of the following three paragraphs
 
-- ChatGPT Reply: 
+- ChatGPT Output: 
 
 	Sure! Please go ahead and provide the three paragraphs you'd like me to summarize and analyze.
 
 - Prompt:
 
-	[text of the last three paragraphs of the main article herein.] 
+	*[text of the last three paragraphs of the main article.] *
 	
-- ChatGPT Reply: 
+- ChatGPT Output: 
 
-	*Summary:*
+	**Summary:**
 
 	The three paragraphs describe a critical perspective on the U.S. government's foreign policy, particularly focusing on its historical approach to international relations. The author argues that the U.S. has consistently used tactics of sowing discord and manipulating information to maintain global dominance, often contradicting international norms and undermining global cooperation. The text emphasizes how this strategy has been driven by greed and serves the interests of an Anglo-Saxon, Euro-centric worldview, often at the expense of other civilizations. The author calls for introspection and a change in the behavior of U.S. leaders to address the harm caused by these actions.
 
-	*Sentiment Analysis:*
+	**Sentiment Analysis:**
 
 	Polarity: -0.75 (Negative sentiment)
 
@@ -156,54 +157,60 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 
 	What would make it more objective? 
 	
-- ChatGPT Reply:
+- ChatGPT Output:
 
 	To make the text more objective, the tone and content would need to shift away from emotional language and subjective judgment, focusing instead on verifiable facts, clear explanations, and neutral language. Here are some specific suggestions to improve objectivity:
 
 	1. **Remove Emotional and Judgmental Language**:
 
-	The text uses strong, emotionally charged terms like "sneaky," "dishonest," "dastardly," "underhanded," "hypocritical," etc. These words convey a personal judgment of the U.S. government's actions. Replacing these with more neutral terms (e.g., "deceptive tactics," "contradictory actions") would help create a more neutral tone.
+		The text uses strong, emotionally charged terms like "sneaky," "dishonest," "dastardly," "underhanded," "hypocritical," etc. These words convey a personal judgment of the U.S. government's actions. Replacing these with more neutral terms (e.g., "deceptive tactics," "contradictory actions") would help create a more neutral tone.
 
-	**Example:**
+		**Example:**
 
-	* Original: "Being sneaky, dishonest, underhanded, insincere, surreptitious..."
-	* Revised: "Engaging in covert or deceptive tactics, undermining transparency..."
+		- *Original: "Being sneaky, dishonest, underhanded, insincere, surreptitious..."*
+		
+		- *Revised: "Engaging in covert or deceptive tactics, undermining transparency..."* 
+	
 
 	2. **Provide Factual Evidence**:
 
-	Statements like "The American government's approach... has remained the same" and "Such ignoble and unjust pursuits..." would be more objective if they were supported by specific historical examples or data. Instead of making broad claims, citing instances where U.S. foreign policy has caused harm, or referencing studies and reports, would lend more credibility and objectivity.
+		Statements like "The American government's approach... has remained the same" and "Such ignoble and unjust pursuits..." would be more objective if they were supported by specific historical examples or data. Instead of making broad claims, citing instances where U.S. foreign policy has caused harm, or referencing studies and reports, would lend more credibility and objectivity.
 
-	**Example:**
-
-	* Original: "The main purpose of that approach has been to increase chaos and confusion among nations..."
-	* Revised: "Critics of U.S. foreign policy have argued that certain strategies, such as information warfare, have led to instability in regions like the Middle East."
+		**Example:**
+		
+		- *Original: "The main purpose of that approach has been to increase chaos and confusion among nations..."*
+		
+		- *Revised: "Critics of U.S. foreign policy have argued that certain strategies, such as information warfare, have led to instability in regions like the Middle East."*
 
 	3. **Avoid Overgeneralizations**:
 
-	Statements like "all civilizations that are not Euro-centric" or "a number of their current and previous office bearers" are broad generalizations that don’t leave room for nuance. Instead, providing specific examples or acknowledging counterarguments would help balance the narrative and avoid sweeping claims.
+		Statements like "all civilizations that are not Euro-centric" or "a number of their current and previous office bearers" are broad generalizations that don’t leave room for nuance. Instead, providing specific examples or acknowledging counterarguments would help balance the narrative and avoid sweeping claims.
 
-	**Example:**
+		**Example:**
 
-	* Original: "has been especially to the detriment of all civilizations that are not Euro-centric and subservient to Anglo-Saxon worldviews."
-	* Revised: "Critics argue that U.S. foreign policy has often favored Euro-centric or Western viewpoints, sometimes at the expense of non-Western nations."
+		- *Original: "has been especially to the detriment of all civilizations that are not Euro-centric and subservient to Anglo-Saxon worldviews."*
+		
+		- *Revised: "Critics argue that U.S. foreign policy has often favored Euro-centric or Western viewpoints, sometimes at the expense of non-Western nations."* 
 
 	4. **Eliminate Ambiguity**:
 
-	The phrase "the American government's conduct in various matters concerning the wellness of humanity" is vague and could be made more precise. Instead of using broad terms like "wellness of humanity," it would be clearer to focus on specific global issues, such as environmental sustainability, economic inequality, or peace-building, and explain how the U.S. government’s actions have impacted those areas.
+		The phrase "the American government's conduct in various matters concerning the wellness of humanity" is vague and could be made more precise. Instead of using broad terms like "wellness of humanity," it would be clearer to focus on specific global issues, such as environmental sustainability, economic inequality, or peace-building, and explain how the U.S. government’s actions have impacted those areas.
 
-	**Example:**
+		**Example:**
 
-	* Original: "the wellness of humanity as a whole, and of life's global ecology."
-	* Revised: "the global environment and international relations, particularly in regions affected by U.S. foreign interventions."
+		- *Original: "the wellness of humanity as a whole, and of life's global ecology."* 
+		
+		- *Revised: "the global environment and international relations, particularly in regions affected by U.S. foreign interventions."* 
 
 	5. **Maintain a Balanced Tone**:
 
-	Introducing more balance would involve acknowledging the complexity of international relations and the role of various actors. For example, recognizing that the U.S. government has had both positive and negative effects in different parts of the world could provide a more balanced view.
+		Introducing more balance would involve acknowledging the complexity of international relations and the role of various actors. For example, recognizing that the U.S. government has had both positive and negative effects in different parts of the world could provide a more balanced view.
 
-	**Example:**
+		**Example:**
 
-	* Original: "Such ignoble and unjust pursuits..."
-	* Revised: "There are critiques of U.S. foreign policy, particularly regarding its impact on non-Western nations, though others argue that these actions have been in the pursuit of national security or global stability."
+		- *Original: "Such ignoble and unjust pursuits..."*
+		
+		- *Revised: "There are critiques of U.S. foreign policy, particularly regarding its impact on non-Western nations, though others argue that these actions have been in the pursuit of national security or global stability."*
 
 	--
 
@@ -230,7 +237,7 @@ Unfortunately, popular AI have not yet been trained to detect content that is su
 	Is the currently available version of IBM Watson obsolete, compared to latest version of ChatGPT?  
 
 	
-- ChatGPT Reply: 
+- ChatGPT Output: 
 
 	*[After loads of info about each platform's features compared side-by-side...]*
 	
