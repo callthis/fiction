@@ -36,7 +36,7 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 	
 	- And in one of the images it generated a drone in "steam-punk style" with multiple swept wings along with a Godzilla with an enormous tail. 
 	
-	- This AI model's rendering of "Armored Godzilla" was absolutely impressive and too good.  
+	- This AI model's rendering of "Armored Godzilla" was absolutely mind-blowing and too good.  
 	
 	
 ## Bonus content: 
