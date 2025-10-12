@@ -6,7 +6,7 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 
 <div align="center">
 
-<img href="https://github.com/callthis/fiction/blob/master/src/ai-generated/09-godzilla-drones-airplane.png" width="60%"></img>
+<img href="" width="60%"></img>
 
 
 </div>
