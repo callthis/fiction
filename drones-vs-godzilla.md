@@ -53,7 +53,7 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 
 </div>
 
-### Extra Extra, Read all about it: 
+### Extra! Extra! Read all about it: 
 
 - Trumpzilla Visual Description:
 
