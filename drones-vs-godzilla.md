@@ -39,10 +39,12 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 	- This AI model's rendering of "Armored Godzilla" was absolutely impressive and too good.  
 	
 	
-- Bonus content: [Golf-Oscar-Delta-Zulu-India-Lima-Lima-Alpha!](https://youtu.be/UAT-eOzeY4M)
+## Bonus content: 
+
+- [Golf-Oscar-Delta-Zulu-India-Lima-Lima-Alpha!](https://youtu.be/UAT-eOzeY4M)
 
 
-- Some more bonus content: 
+## Some more bonus content: 
 
 <div align="center">
 
