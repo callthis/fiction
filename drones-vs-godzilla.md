@@ -34,7 +34,7 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 
 	- In one of them the AI model created a female anime character from "Attack on Titans" because the prompt had the words "divine" and "dream-like" in it. 
 	
-	- And in one of the images it generated a drone in "steam-punk style" with multiple swept wings along with a Godzilla with an enormous tail. 
+	- And in one of the images it generated drones with swept wings in "steam-punk style", along with a Godzilla with an enormous tail. 
 	
 	- This AI model's rendering of "Armored Godzilla" was absolutely mind-blowing and too good.  
 	
@@ -49,7 +49,7 @@ Can a drone do more damage to an airplane than Godzilla? Drones are real, Godzil
 
 <div align="center">
 
-<img src="https://i.ibb.co/53VfFyz/trumpzilla-smiling.jpg" alt="trumpzilla-smiling" width="35%"></img> &nbsp; &nbsp; <img src="https://i.ibb.co/B5VXP7gp/trumpzilla-closeup.jpg" alt="trumpzilla-closeup" width="35%"></img>
+<img src="https://i.ibb.co/53VfFyz/trumpzilla-smiling.jpg" width="35%"></img> &nbsp; &nbsp; <img src="https://i.ibb.co/B5VXP7gp/trumpzilla-closeup.jpg" width="35%"></img>
 
 </div>
 
