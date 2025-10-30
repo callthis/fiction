@@ -24,7 +24,7 @@ I understand that Mr. Vijay Mallya has been bargaining with members of The Crown
 
 So unless someone puts him six-feet-under into the ground, he isn't going to germinate into anything useful for anyone. And as you know, Mr. Vijay Mallya is such a piece of trash that you might as well do it yourself, mostly because he isn't worth the trouble for anybody here. 
 
-Mr. Vijay Mallya is indeed an absconding felon, but it turns out that he is still a trend setter, and as I write this, a group of healthcare managers and practitioners from India are preparing to flee to Briton, like him, in order to escape prosecution for their major crimes. 
+Mr. Vijay Mallya is indeed an absconding felon, but it turns out that he is still a trend setter, and as I write this, a group of healthcare managers and practitioners from India are preparing to flee to Britain, like him, in order to escape prosecution for their major crimes. 
 
 Now, I can't let those members of the international healthcare mafia abscond so easily. But "who" exactly am I, to have any say in such matters?
 
