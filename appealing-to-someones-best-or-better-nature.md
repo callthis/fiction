@@ -6,7 +6,7 @@ It turns out that, globally at any given hour, more than 70% of commercial airpl
 
 And...
 
-The managerial corporations under the control of The Crown has also been pressuring healthcare companies in India for an exponentially compounding Return on Investment (ROI) by having those healthcare organizations cut corners. 
+The managerial corporations under the control of The Crown have also been pressuring healthcare companies in India for delivering an exponentially compounding Return on Investment (ROI) by having those healthcare organizations cut corners. 
 
 Airlines, airplane manufacturers, aircraft maintenance companies, airports, and hospitals have been privatized among various Commonwealth Countries in a particular way, so that they can market themselves as *premier* establishments with the highest quality of standards for serving the public, to attract an increasing number of local and international customers. This has and is being done, only to then sneakily cut corners and degrade safety standards among those privatized entities by jeopardizing the well being of passengers and patients. Most often, such dirty and clandestine deeds are being committed by managers and various share holders of those privatized entities, so that they can satisfy their as well as The Crown's greed. This is truly awful and deplorable! 
 
