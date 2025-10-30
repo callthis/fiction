@@ -1,6 +1,6 @@
 ## How to appeal to someone's best or better nature
 
-@GCHQ You seem to be a glutton for data. So here is some more data for you...
+[@GCHQ](https://www.gchq.gov.uk/section/locations/london) You seem to be a glutton for data. So here is some more data for you...
 
 It turns out that, globally at any given hour, more than 70% of commercial airplanes on the tarmac or in the air, have something to do with insurance companies bought into by The Crown, often via Ireland or the UAE. 
 
@@ -16,7 +16,7 @@ Take for example, the way The Crown prods the pension funds in Canada to invest 
 
 Having overworked medical practitioners in India, or burdening aircraft maintenance companies in Singapore and Malaysia, all of which lead to harms to the public in South Asian countries, is simply tragic. More importantly, these are also an emergent factor for escalated conflicts. But not only that, having international insurance companies pay corporate lawyers to cause attrition to suffering victims and survivors as plaintiffs of wrongful deaths or injuries, particularly those who have endured multiple and recurring bad incidents within critical industry sectors of countries like India, is plainly greed-driven insidiousness. 
 
-So, I can let you know that I received the message from the Americans about having Mr. Vijay Mallya picked up, and I passed it along. However, it seems that there isn't a single person interested in taking him back. Turns out that he has outlived his usefulness to the Indian public, especially because you have sucked him dry. Plus, he and his forefathers were Briton's Lapdogs since the 18th Century, so, there isn't anybody here who has any use for Briton's [Stool Knights](https://en.wikipedia.org/wiki/Groom_of_the_Stool). 
+So, I can let you know that I received the message from the Americans about having Mr. Vijay Mallya picked up, and I passed it along. However, it seems that there isn't a single person interested in taking him back. Turns out that he has outlived his usefulness for the Indian public, especially because you have sucked him dry. Plus, he and his forefathers were Briton's Lapdogs since the 18th Century, so, there isn't anybody here who has any use for Briton's [Stool Knights](https://en.wikipedia.org/wiki/Groom_of_the_Stool). 
 
 >In all likelihood, Mr. Mallya has already divulged all the State Secrets and Industrial Secrets he was privy to, in his bid to get Knighted by The Crown as a "Peer of The Realm." 
 
